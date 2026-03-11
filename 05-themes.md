@@ -30,7 +30,7 @@ No single adult in Olivia's life provided a complete model for how to live. Each
 - Traditional grandparents: commitment but rigidity
 - Mark: a warning
 - Nadia: freedom but inability to be present when needed
-- Ethan: pattern interruption---but carrying his own damage from a cold marriage
+- Will: pattern interruption---but carrying his own damage from a cold marriage
 - Jess and Rachel: real friendship, but partial---no one holds the whole story
 
 **Three models of masculinity** shape Olivia's expectations of men:

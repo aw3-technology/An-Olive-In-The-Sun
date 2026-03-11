@@ -1,9 +1,9 @@
 # Chapter 10
 ## Hollywood
 
-A woman I don't recognize crosses the lawn in heels that should be impossible on grass. She moves like someone who has solved this problem before, weight forward, balls of her feet, each step a small decision. Gold dress. Hair that has been touched by at least three people today. She air-kisses Ethan's aunt and takes a glass of champagne from a passing tray without breaking stride. I watch her the way you watch a nature documentary. The effortlessness is the performance, and the performance is flawless.
+A woman I don't recognize crosses the lawn in heels that should be impossible on grass. She moves like someone who has solved this problem before, weight forward, balls of her feet, each step a small decision. Gold dress. Hair that has been touched by at least three people today. She air-kisses Will's aunt and takes a glass of champagne from a passing tray without breaking stride. I watch her the way you watch a nature documentary. The effortlessness is the performance, and the performance is flawless.
 
-Someone beside me, a friend of Ethan's mother, leans in. "You used to model, didn't you?"
+Someone beside me, a friend of Will's mother, leans in. "You used to model, didn't you?"
 
 I turn. She is smiling. It is a generous smile, the kind attached to a compliment that hasn't quite arrived yet.
 
@@ -91,7 +91,7 @@ I am not that girl anymore. The girl in the bathroom mirror with the mascara smu
 
 I am also still her. I will always be a little bit still her. The difference is that now I know what I was running from, and I know that no room, however gilded, was ever going to outrun it. The parties were not freedom. They were the most expensive way I ever found to hide.
 
-Ethan's mother's friend is still beside me, smiling, waiting for something. I realize I never really answered her.
+Will's mother's friend is still beside me, smiling, waiting for something. I realize I never really answered her.
 
 "I teach high school English now," I say.
 

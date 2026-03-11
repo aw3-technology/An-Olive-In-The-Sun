@@ -11,7 +11,7 @@ She tilts my chin up with two fingers and studies my face the way she studies ev
 
 "You didn't sleep," she says. Not a question.
 
-"Classic anxiety dream. Ethan didn't show up. The chairs were empty. The usual."
+"Classic anxiety dream. Will didn't show up. The chairs were empty. The usual."
 
 "He's showing up."
 
@@ -23,7 +23,7 @@ The first brush touches my skin and I flinch, then settle. Foundation, cool and 
 
 My phone buzzes on the counter. I reach for it.
 
-Ethan: *Are you nervous?*
+Will: *Are you nervous?*
 
 I type back: *Terrified. You?*
 

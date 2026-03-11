@@ -49,7 +49,7 @@ I watch my grandmother reach over and adjust my grandfather's lapel. Her fingers
 
 They have been doing this for fifty-three years. This small maintenance. This silent tending.
 
-I wonder what Ethan is doing right now. Probably standing in a room on the other side of this venue, hands in his pockets, calm in that way of his that used to infuriate me and now feels like the only solid ground in any room. He is always calmer than I am. I used to think this meant he cared less. I know better now. He is calm the way deep water is calm: there is plenty happening underneath.
+I wonder what Will is doing right now. Probably standing in a room on the other side of this venue, hands in his pockets, calm in that way of his that used to infuriate me and now feels like the only solid ground in any room. He is always calmer than I am. I used to think this meant he cared less. I know better now. He is calm the way deep water is calm: there is plenty happening underneath.
 
 I wonder if he is counting anything. I doubt it.
 

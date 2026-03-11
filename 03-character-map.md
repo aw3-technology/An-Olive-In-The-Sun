@@ -201,7 +201,7 @@
 
 ## ETHAN (The Fiance / Husband)
 
-**Full name:** Ethan
+**Full name:** Will
 **Age at wedding:** 34
 **Occupation:** Architect (residential, small firm---designs homes for other people while slowly learning what home means for himself)
 **Physical description:** Tall, lean, dark hair that he pushes back when he's thinking. Quiet hands---deliberate, careful. A face that looks serious until he smiles, and then it changes completely. Wears his clothes a little too well for someone who claims not to care about fashion. A small scar on his left knuckle from a carpentry accident in college.
@@ -253,7 +253,7 @@
 
 ## THE WEDDING PARTY AND ADULT FRIENDSHIPS
 
-Olivia's relationship to friendship is fractured by the same instability that fractured everything else. She has never had a single lifelong best friend---the Catholic school girls left, public school friendships didn't stick, college was consumed by Ethan and then by collapse. Her adult friendships are real but compartmentalized: people from different eras who don't know each other, each holding a piece of Olivia that the others have never seen.
+Olivia's relationship to friendship is fractured by the same instability that fractured everything else. She has never had a single lifelong best friend---the Catholic school girls left, public school friendships didn't stick, college was consumed by Will and then by collapse. Her adult friendships are real but compartmentalized: people from different eras who don't know each other, each holding a piece of Olivia that the others have never seen.
 
 This is revealing. A woman who intellectualizes connection, who moved through schools and cities and identities, who spent her twenties in crisis---she didn't build the kind of deep, continuous female friendships that many women rely on. She has allies, not a tribe. The wedding party reflects this honestly.
 
@@ -263,11 +263,11 @@ This is revealing. A woman who intellectualizes connection, who moved through sc
 
 2. **Jess** --- A friend from the teaching program. Met during student teaching, bonded over exhaustion and dark humor in the parking lot after school. Jess is loud, generous, disorganized, and the closest thing Olivia has to a best friend in adulthood. She is also the person who drove Olivia to the ER during a panic attack in grad school and never mentioned it again, which is the kind of friendship Olivia trusts. Jess doesn't know about the hospitalization. Olivia has never told her. This gap---the things Olivia withholds even from the people she loves---says everything about how she learned to survive.
 
-3. **Rachel** --- A college friend from the Jesuit university, one of the few friendships that survived the Ethan years and the aftermath. Rachel is precise, Catholic in practice (not just heritage), and the person Olivia calls when she needs someone to tell her she's being irrational. Rachel knows the most about Olivia's history---she was there for the college relationship, the breakup, the early signs of crisis. She doesn't entirely understand Olivia's choices but she shows up. She is the friend who represents continuity in a life defined by fracture.
+3. **Rachel** --- A college friend from the Jesuit university, one of the few friendships that survived the Will years and the aftermath. Rachel is precise, Catholic in practice (not just heritage), and the person Olivia calls when she needs someone to tell her she's being irrational. Rachel knows the most about Olivia's history---she was there for the college relationship, the breakup, the early signs of crisis. She doesn't entirely understand Olivia's choices but she shows up. She is the friend who represents continuity in a life defined by fracture.
 
 **What the wedding party reveals:** That Olivia's closest relationships are functional, not intimate. She has people who care, but no one who holds the complete story. The fragments of herself she shares with friends mirror the fragmented role models she grew up with---everyone gets a piece, no one gets the whole picture. This is both a wound and a form of self-protection she is only beginning to recognize.
 
-**Groomsmen / Ethan's side:** Ethan has a best man (a college friend who stuck around through the fourteen-year gap) and two groomsmen. His friendships are simpler, more continuous. Olivia notices this about him---his ability to maintain connection without crisis---and it is one of the things she finds both admirable and slightly foreign.
+**Groomsmen / Will's side:** Will has a best man (a college friend who stuck around through the fourteen-year gap) and two groomsmen. His friendships are simpler, more continuous. Olivia notices this about him---his ability to maintain connection without crisis---and it is one of the things she finds both admirable and slightly foreign.
 
 ---
 
@@ -297,7 +297,7 @@ This is revealing. A woman who intellectualizes connection, who moved through sc
 - Full name: Nadia
 - Occupation: Freelance photographer---always shooting, always framing the world through a lens. Olivia found this glamorous at first, then realized Nadia experienced everything as composition rather than connection.
 - Personality: Bold, restless, fiercely independent. Smoked hand-rolled cigarettes and spoke three languages and made Olivia feel like the most interesting person in any room---until she didn't. Charismatic in the way of people who are always performing self-possession. Underneath: terrified of vulnerability, especially other people's.
-- What she meant to Olivia: Nadia was Olivia's first relationship after the devastation of Ethan. She represented freedom, adventure, the possibility that love didn't have to follow the script Olivia had inherited. With Nadia, Olivia felt chosen for who she was becoming, not who she had been. The relationship also represented Olivia's exploration of her sexuality---genuine, not performative, and important to her sense of identity.
+- What she meant to Olivia: Nadia was Olivia's first relationship after the devastation of Will. She represented freedom, adventure, the possibility that love didn't have to follow the script Olivia had inherited. With Nadia, Olivia felt chosen for who she was becoming, not who she had been. The relationship also represented Olivia's exploration of her sexuality---genuine, not performative, and important to her sense of identity.
 - Why the relationship ended: Not simply "she left." When Olivia got sick in Barcelona---really sick, feverish, unable to leave the hotel room---Nadia couldn't handle it. She tried at first: brought water, sat by the bed. But caretaking required a kind of intimacy Nadia had never learned. By day three, Nadia was spending whole days out with her camera, coming back late, growing impatient. She said: "I didn't come to Barcelona to sit in a hotel room." It wasn't cruelty---it was limitation. She couldn't be needed. When Olivia needed her most, Nadia experienced it as a cage. She left for Lisbon "for a few days." She didn't come back. The breakup happened over a two-line text message a week later.
 - What Nadia taught Olivia: That charm and independence are not the same as love. That some people can only be present for the beautiful parts. That being left is not the same as being unlovable---sometimes it just means the other person ran out of capacity. Also: that she could survive being abandoned in a foreign city, which turned out to be the more important lesson.
 
@@ -313,7 +313,7 @@ This is revealing. A woman who intellectualizes connection, who moved through sc
 | Mark | Chaos | Awareness of danger | Destruction |
 | Socialite Grandfather | Charisma | Social navigation | Performance masking pain |
 | Traditional Grandparents | Tradition | Commitment | Emotional rigidity |
-| Ethan (Fiance) | Second chances, pattern interruption | Mature love, consistency, emotional literacy | History of pain, the risk of repeating his parents' coldness |
+| Will (Fiance) | Second chances, pattern interruption | Mature love, consistency, emotional literacy | History of pain, the risk of repeating his parents' coldness |
 | Nadia (Barcelona) | Freedom, self-possession | Permission to explore identity and desire | Inability to be present when needed |
 | Jess (Teaching friend) | Adult friendship | Practical loyalty, dark humor | Holds only a partial version of Olivia |
 | Rachel (College friend) | Continuity | Witness to Olivia's history | Doesn't fully understand Olivia's choices |

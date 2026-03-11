@@ -133,7 +133,7 @@
 - Unwanted hands --- groomsman's hand on her back, aggressive male attention (Ch. 11)
 - Grandfather's hands holding a martini glass (Ch. 12)
 - Olivia's hands holding a wooden spoon --- steady now, cooking for herself (Ch. 20)
-- Ethan reaching for her hand after fourteen years (Ch. 20)
+- Will reaching for her hand after fourteen years (Ch. 20)
 - Mother's hands on the steering wheel during a Sunday drive --- just driving, just living (Ch. 24)
 - Father's hands during the dance (Ch. 25)
 
@@ -224,7 +224,7 @@ Films Olivia watched shape her internal mythology. Each film belongs to a specif
 
 | Film | What it represents | Era / Chapters | How to reference |
 |---|---|---|---|
-| The Notebook | Romantic idealism | Ch. 19, 20 (reconnecting with Ethan) | The movie every girl her age cried over --- love lost and found. She lived it, minus the rain scene |
+| The Notebook | Romantic idealism | Ch. 19, 20 (reconnecting with Will) | The movie every girl her age cried over --- love lost and found. She lived it, minus the rain scene |
 
 ---
 
@@ -262,7 +262,7 @@ Each platform represents a stage in Olivia's relationship with identity, perform
 - Parents married for 5 years; Olivia was 5 when they divorced---her entire conscious memory maps exactly to the duration of the marriage (Ch. 1)
 - Grandparents divorced after 40 years---proving that longevity doesn't guarantee permanence (Ch. 1, 13)
 - Mark in the family for roughly 11 years before his suicide---longer than her parents' marriage lasted (Ch. 16)
-- 14 years between the breakup with Ethan and their reconnection---the longest absence in the book, and the one that reverses (Ch. 20)
+- 14 years between the breakup with Will and their reconnection---the longest absence in the book, and the one that reverses (Ch. 20)
 - Olivia's OCD counting rituals throughout the wedding day---pressing her thumbnail into her finger in groups of four, counting chairs, checking things twice, three times
 
 **Function:** The numbers create an unconscious architecture of loss. Olivia notices them because her OCD brain looks for patterns everywhere---and the terrifying thing is that the patterns are real. The book's resolution is not that the numbers don't matter, but that they don't have to predict the future.

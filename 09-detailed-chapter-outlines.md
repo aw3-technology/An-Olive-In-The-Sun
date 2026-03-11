@@ -17,7 +17,7 @@
 
 **WEDDING (Present --- 4--6 paragraphs)**
 - Olivia wakes in a hotel room, heart pounding. Northern California autumn light cuts through the curtains.
-- The dream: Ethan never arrived at the altar. She stood there in white while the guests shifted in their seats and the officiant looked at her with pity. The aisle just stretched and stretched.
+- The dream: Will never arrived at the altar. She stood there in white while the guests shifted in their seats and the officiant looked at her with pity. The aisle just stretched and stretched.
 - She sits on the edge of the bed. The sheets are expensive. The room is beautiful. She is terrified.
 - The silence of the morning. No one has come to the room yet. She is alone with her fear.
 - Establish her OCD tendencies: she straightens the pillows, folds the sheets, arranges her phone and water glass at precise angles. Control as comfort.
@@ -35,7 +35,7 @@
 - The aftermath: two houses, two bedrooms, two sets of rules. The doubling of everything except stability.
 
 **RETURN TO WEDDING (1--2 paragraphs)**
-- Olivia looks at her phone. A text from Ethan: "Still here. Still showing up. Coffee's on me after." Simple, warm, dry. The voice of a man who says less than he means. He is there. He showed up.
+- Olivia looks at her phone. A text from Will: "Still here. Still showing up. Coffee's on me after." Simple, warm, dry. The voice of a man who says less than he means. He is there. He showed up.
 - But the fear doesn't leave. It sits in the room like another guest.
 
 **THEMES:** Generational patterns, fear of repetition, choosing love despite fear
@@ -54,7 +54,7 @@
 - The ritual of getting into the wedding dress. Zippers, buttons, fabric. The intimacy of being dressed by someone who raised you.
 - Her mother stands behind her in the mirror. Two women, one dress, a lifetime between them.
 - **OCD/anxiety:** She has already checked her phone three times since her mother arrived. No new texts from him since the one she read at 6:14 a.m. She counts the minutes since his last message. An intrusive thought as the zipper goes up: *what if it breaks during the ceremony, in front of everyone?* She pushes it away, touches the seam twice, pressing the metal teeth flat with her thumb.
-- **Ethan presence:** He is in another room in this hotel. Getting dressed with his groomsmen. Drinking coffee she made sure was ordered to his room. She wonders if he slept. She wonders if he dreamed of empty aisles too.
+- **Will presence:** He is in another room in this hotel. Getting dressed with his groomsmen. Drinking coffee she made sure was ordered to his room. She wonders if he slept. She wonders if he dreamed of empty aisles too.
 
 **TRIGGER:** Her mother's trembling hands. The way they used to tremble after her third glass of wine on Sunday evenings.
 
@@ -88,7 +88,7 @@
 - The contrast between them: Olivia all nervous energy and philosophical overthinking, her sister calm and tactile. Two daughters of the same chaos who look like they came from different families.
 - Small talk that circles around something deeper. The distance between them is not hostile---just permanent.
 - **OCD/anxiety:** Olivia's leg bounces under the robe. She asks her sister if the eyeliner is even---both sides, she needs them to match exactly. Her sister says they are. Olivia tilts her head, studies the mirror. Asks again. Her sister doesn't roll her eyes, which is its own kind of kindness.
-- **Ethan presence:** Her phone buzzes. She grabs it. Ethan: *Are you nervous?* She types back: *Terrified. You?* He sends: *Same. In a good way.* She reads it twice. Holds the phone against her chest for a beat before setting it down. Her sister notices but says nothing.
+- **Will presence:** Her phone buzzes. She grabs it. Will: *Are you nervous?* She types back: *Terrified. You?* He sends: *Same. In a good way.* She reads it twice. Holds the phone against her chest for a beat before setting it down. Her sister notices but says nothing.
 - **The crack:** Then, mid-mascara, her sister pauses. The wand hovers. A brief stillness. She says something she has never said: that she's jealous. Not of the wedding. Of the fact that Olivia figured out what was wrong and got help---got diagnosed, got therapy, got to name her pain. While the sister just kept waking up and going to work and calling it fine. The moment lasts thirty seconds. Then she finishes the mascara, says "hold still," and the wall goes back up. But it changes something between them.
 
 **TRIGGER:** Her sister's apparent groundedness---and the cost of maintaining it. The way she handles beauty tools like they're surgical instruments. How did they grow up in the same house and become such different people? And what did her sister's version of survival actually cost?
@@ -122,7 +122,7 @@
 - A body of water becomes visible from the road. A lake or reservoir, flat and silver.
 - Olivia's stomach drops.
 - **OCD/anxiety:** In the car, she counts mile markers. A habit she thought she'd outgrown. Her fingers tap the armrest in groups of four. She checks the time, calculates how many minutes until the ceremony, divides by intervals she can manage. The math is soothing. The math is the point.
-- **Ethan presence:** He texted twenty minutes ago: a photo of his shoes, polished, beside his suit. *Ready when you are.* She imagines him already at the venue. Waiting. The thought of someone choosing to wait---not trapped, not obligated, but choosing to stand still until she arrives---still feels foreign.
+- **Will presence:** He texted twenty minutes ago: a photo of his shoes, polished, beside his suit. *Ready when you are.* She imagines him already at the venue. Waiting. The thought of someone choosing to wait---not trapped, not obligated, but choosing to stand still until she arrives---still feels foreign.
 
 **TRIGGER:** Water. The sight of it. The way sunlight breaks on a surface that hides everything underneath.
 
@@ -186,7 +186,7 @@
 - One chair has a small marker---a flower, a photo, something quiet. Reserved for someone who will not sit in it.
 - Olivia stares at it. The absence is louder than everything else in the room.
 - **Wedding conflict:** The coordinator pulls her aside. The florist sent white roses instead of ranunculus for the aisle arrangements. Wrong flowers. Olivia feels the familiar tightening in her chest---the need for everything to be exactly right, exactly as planned. She types a response to the florist, deletes it, types again. Her sister sees her face and takes the phone. "I'll handle it." Olivia lets her, and hates that she needed to.
-- **Ethan presence:** She wishes he were here, not sequestered on the other side of the venue with his groomsmen. He would say: *They're flowers. They'll be beautiful.* And she would believe him, which is maybe the most astonishing thing about him---not that he calms her, but that she lets him.
+- **Will presence:** She wishes he were here, not sequestered on the other side of the venue with his groomsmen. He would say: *They're flowers. They'll be beautiful.* And she would believe him, which is maybe the most astonishing thing about him---not that he calms her, but that she lets him.
 
 **TRIGGER:** The empty chair. Absence made visible. The person-shaped hole in the room.
 
@@ -201,7 +201,7 @@
 
 **RETURN TO WEDDING (1--2 paragraphs)**
 - Olivia touches the chair. The flower on it. She straightens it---adjusts it again. The need for grief to be orderly, for even absence to be arranged.
-- She checks her phone. A text from Ethan: *Thinking of you.* Three words. She presses her thumb against the screen as if she could feel the warmth of them.
+- She checks her phone. A text from Will: *Thinking of you.* Three words. She presses her thumb against the screen as if she could feel the warmth of them.
 - She walks away from the chair. The ceremony hasn't started yet. There is still time to feel everything before she has to perform composure.
 
 **THEMES:** Grief, absence, the slow reveal of trauma, denial, adults as unreliable narrators (the family's vocabulary of denial)
@@ -270,7 +270,7 @@
 
 **RETURN TO WEDDING (1--2 paragraphs)**
 - The guests laugh about a shared memory. Olivia has no shared memories with most of these people. She built her life from separate chapters, not a continuous story.
-- **Ethan presence:** Her fiancé grew up in one town, one school district, K through 12. The kind of childhood Olivia studies like an anthropologist. He doesn't fully understand what it cost her to get here---not because he doesn't care, but because some distances can only be measured by someone who walked them. She catches a glimpse of him through a window, laughing with his groomsmen, and the sight steadies her.
+- **Will presence:** Her fiancé grew up in one town, one school district, K through 12. The kind of childhood Olivia studies like an anthropologist. He doesn't fully understand what it cost her to get here---not because he doesn't care, but because some distances can only be measured by someone who walked them. She catches a glimpse of him through a window, laughing with his groomsmen, and the sight steadies her.
 - She refills her champagne glass. The bubbles look like small escapes rising to the surface.
 
 **THEMES:** Displacement, identity construction, the outsider
@@ -284,7 +284,7 @@
 **Target length:** 3,500--4,500 words
 
 **WEDDING (Present --- 2--3 paragraphs)**
-- Champagne glasses clinking. Her bridesmaids laughing---Jess (from the teaching program, loud and generous, the closest thing Olivia has to a best friend in adulthood) and Rachel (from the Jesuit college, precise, Catholic, the only friend who witnessed both the Ethan years and the aftermath). Her sister as maid of honor, steady and slightly apart. The pre-ceremony buzz of celebration.
+- Champagne glasses clinking. Her bridesmaids laughing---Jess (from the teaching program, loud and generous, the closest thing Olivia has to a best friend in adulthood) and Rachel (from the Jesuit college, precise, Catholic, the only friend who witnessed both the Will years and the aftermath). Her sister as maid of honor, steady and slightly apart. The pre-ceremony buzz of celebration.
 - Olivia watches them and feels the strange truth of her adult friendships: real but compartmentalized. Jess doesn't know about the hospitalization. Rachel doesn't entirely understand Olivia's choices. Her sister holds a version of Olivia that neither friend has access to. No one in this room has the complete story.
 - The sound of celebration mixed with alcohol. The two things that have always been tangled together in Olivia's life.
 
@@ -344,7 +344,7 @@
 
 **RETURN TO WEDDING (1--2 paragraphs)**
 - The glamorous guest is taking a selfie. Olivia watches.
-- **Ethan presence:** Her fiancé doesn't know most of these stories. She has told him some, in the dark, in bed, in the voice she reserves for things that might make someone leave. He didn't leave. He listened the way no one in Hollywood ever did---without trying to get something from the listening.
+- **Will presence:** Her fiancé doesn't know most of these stories. She has told him some, in the dark, in bed, in the voice she reserves for things that might make someone leave. He didn't leave. He listened the way no one in Hollywood ever did---without trying to get something from the listening.
 - She thinks about the difference between being seen and being known. Today, she wants to be known.
 
 **THEMES:** Misogyny, commodification of women, fashion and identity, surfaces vs. depth, adults as unreliable narrators (glamour as facade)
@@ -360,7 +360,7 @@
 **WEDDING (Present --- 3--5 paragraphs)**
 - A groomsman's lingering eye contact across the room. A hand on the small of her back as someone passes. The casual invasion that women learn to absorb.
 - Olivia stiffens. Then forces herself to relax. The lifelong negotiation between discomfort and social grace.
-- **Ethan presence:** She glances toward where Ethan is standing with his groomsmen, checking. Still there. Still his. The reflexive inventory of safety that she has done her entire life---but that means something different now.
+- **Will presence:** She glances toward where Will is standing with his groomsmen, checking. Still there. Still his. The reflexive inventory of safety that she has done her entire life---but that means something different now.
 - **OCD/anxiety:** She presses her thumbnail into her index finger---a small, invisible pressure. Three times. A rhythm that quiets the noise. No one sees it. That's the thing about her rituals: they are designed to be invisible. A lifetime of hiding the machinery that keeps her upright.
 
 **TRIGGER:** Unwanted male attention in a space that is supposed to feel safe. The way the body remembers even when the mind has moved on.
@@ -437,7 +437,7 @@ These are the oxygen that makes the darkness survivable for the reader.
 - Her maternal grandparents sitting together in the front row. Quiet. Composed. Hands folded. They have been married for decades.
 - Their stillness is almost alien to Olivia. Stability that has no cracks, or at least none visible from here.
 - **OCD/anxiety:** Olivia counts the chairs in the front row. Twelve. She counts again. Twelve. She knows it was twelve the first time. She counts anyway. The ceremony is less than an hour away now and her body is humming with a low, persistent voltage---not quite panic, but the room adjacent to it.
-- **Ethan presence:** Somewhere on the other side of this venue, the man she is about to marry is probably calm. He is always calmer than she is. She used to resent this. Now she leans into it like a wall. She wonders if he's counting anything. She doubts it.
+- **Will presence:** Somewhere on the other side of this venue, the man she is about to marry is probably calm. He is always calmer than she is. She used to resent this. Now she leans into it like a wall. She wonders if he's counting anything. She doubts it.
 - **Wedding conflict:** The coordinator whispers that they're running fifteen minutes behind schedule. The officiant had a question about the ceremony order. Olivia's jaw tightens. Fifteen minutes. She can feel the schedule slipping like fabric through her fingers. She needs to decide: does she go talk to the officiant herself, or does she trust someone else to handle it? Trusting someone else to handle it is, she realizes, the entire thesis of the day.
 
 **TRIGGER:** Their endurance. The simple fact that they stayed. The question it raises: is staying the same thing as loving?
@@ -474,7 +474,7 @@ These are the oxygen that makes the darkness survivable for the reader.
 
 **FLASHBACK (Past --- bulk of chapter)**
 - Barcelona. Age twenty-two or twenty-three. Traveling with Nadia.
-- Before the trip: Nadia herself. Freelance photographer---bold, restless, fiercely independent. Smoked hand-rolled cigarettes and spoke three languages and made Olivia feel like the most interesting person in any room. She was Olivia's first relationship after the devastation of Ethan, and she represented everything Olivia thought she wanted: freedom, adventure, a love untethered from the domestic script she'd inherited.
+- Before the trip: Nadia herself. Freelance photographer---bold, restless, fiercely independent. Smoked hand-rolled cigarettes and spoke three languages and made Olivia feel like the most interesting person in any room. She was Olivia's first relationship after the devastation of Will, and she represented everything Olivia thought she wanted: freedom, adventure, a love untethered from the domestic script she'd inherited.
 - Before the trip: the relationship itself. What it meant for Olivia to be with a woman. Not a grand coming-out narrative---more like a quiet recognition. She had always been drawn to women too. It wasn't a revelation; it was an admission.
 - Her family's response, or lack of one. Her mother never asked about it directly---the same woman who could manage a private equity firm's schedule but couldn't manage a conversation about her daughter's girlfriend. Her grandparents simply refused to acknowledge it, the way they refused to acknowledge anything that didn't fit their world. Her sister shrugged: "Okay." The most supportive response was also the most dismissive.
 - The absence of a model for this, too. No one in her family had been openly queer. No template. Another identity she had to assemble from scratch.
@@ -507,7 +507,7 @@ These are the oxygen that makes the darkness survivable for the reader.
 - A quiet moment alone before the ceremony. Olivia in a bathroom at the venue. She locked the door. She needed to. The fluorescent light above the mirror.
 - The quality of the light reminds her of another room. Another mirror. Another version of herself staring back.
 - **OCD/anxiety:** Her hands grip the edges of the sink. She is breathing in counts---in for four, hold for four, out for four. The technique her therapist taught her. Her chest is tight. An intrusive thought loop: *what if I'm making a mistake, what if I'm making a mistake, what if I'm making a mistake.* She knows the thought is a symptom, not a signal. She knows this because she has spent years learning the difference. But knowing doesn't always stop the loop. She splashes water on her wrists. Counts to four. The ritual of endurance: keep going. Show up. Perform the next hour.
-- **Ethan presence:** She took her medication this morning. She will take it tomorrow. He knows about the medication. He knows about the counting, the rituals, the loops. He has seen her at her worst and he is still on the other side of this door, waiting to marry her. That fact is either the bravest thing she has ever witnessed or the most terrifying.
+- **Will presence:** She took her medication this morning. She will take it tomorrow. He knows about the medication. He knows about the counting, the rituals, the loops. He has seen her at her worst and he is still on the other side of this door, waiting to marry her. That fact is either the bravest thing she has ever witnessed or the most terrifying.
 
 **TRIGGER:** Fluorescent light. Institutional lighting. The feeling of being observed in a room designed for observation.
 
@@ -648,7 +648,7 @@ These are the oxygen that makes the darkness survivable for the reader.
 **Target length:** 3,000--4,000 words
 
 **WEDDING (Present --- 4--6 paragraphs)**
-- The ceremony is minutes away. Olivia sees Ethan across the room for the last time before she will see him at the altar. His face, his hands, the way he stands---tall, lean, dark hair pushed back, one hand in his pocket, the other holding a glass he isn't drinking from. The small scar on his left knuckle from a carpentry accident in college. The serious expression that changes completely when he smiles.
+- The ceremony is minutes away. Olivia sees Will across the room for the last time before she will see him at the altar. His face, his hands, the way he stands---tall, lean, dark hair pushed back, one hand in his pocket, the other holding a glass he isn't drinking from. The small scar on his left knuckle from a carpentry accident in college. The serious expression that changes completely when he smiles.
 - The weight of history between them is visible to no one but her. Everyone in this room sees a groom. She sees the boy who broke her heart in a dorm room, the man who came back fourteen years later, the person who learned to hold her when she was counting under her breath and couldn't stop.
 - **OCD/anxiety:** The processional is being organized. Bridesmaids lining up. Her sister checking the order. Olivia's heart is hammering. She counts her breaths. She checks her vows in her pocket---still there. She checked thirty seconds ago. She checks again.
 - **Wedding conflict:** Her father approaches, awkward and formal. He will walk her down the aisle. They haven't discussed what this means---the symbolism of being "given away" by a man who left. She decided not to change the tradition, but the irony is not lost on her. He offers his arm. She takes it. His hand is shaking. So is hers.
@@ -660,7 +660,7 @@ These are the oxygen that makes the darkness survivable for the reader.
 - How they met: the campus, the context, the first conversation.
 - The intensity: the kind of love that happens when two people are young enough to believe that feeling everything means understanding everything.
 - What it looked like: all-night conversations, passionate fights, the oscillation between ecstasy and agony. The relationship as weather system.
-- Ethan's backstory, surfaced through the relationship: he grew up in a family that stayed married but shouldn't have. His parents modeled endurance without warmth---dinner every night, silence between courses. He carried unprocessed anger about this into everything. He was possessive, jealous, overwhelmed by the force of what he felt for Olivia. Not abusive, but not healthy---he didn't know how to hold something that mattered without gripping too hard. And Olivia, carrying her own damage, couldn't tell the difference between intensity and love. Two people who needed more than the other could give at that age.
+- Will's backstory, surfaced through the relationship: he grew up in a family that stayed married but shouldn't have. His parents modeled endurance without warmth---dinner every night, silence between courses. He carried unprocessed anger about this into everything. He was possessive, jealous, overwhelmed by the force of what he felt for Olivia. Not abusive, but not healthy---he didn't know how to hold something that mattered without gripping too hard. And Olivia, carrying her own damage, couldn't tell the difference between intensity and love. Two people who needed more than the other could give at that age.
 - The breaking point: what happened. The fight or the silence or the slow drift. The end.
 - The breakup: devastating. Olivia adding it to her evidence file: love collapses. Every time. Without exception.
 - The aftermath: years of silence. His name unsaid. The wound that healed into a scar she could still feel when the weather changed.
@@ -904,7 +904,7 @@ These are the oxygen that makes the darkness survivable for the reader.
   - Her father: distance and creativity
   - Mark: chaos and destruction
   - Her grandfather: charisma and decadence
-- Together, they explain why trusting a man enough to marry one feels like the bravest thing she has ever done. And why Ethan's consistency---his ability to simply show up, day after day---felt both admirable and slightly foreign.
+- Together, they explain why trusting a man enough to marry one feels like the bravest thing she has ever done. And why Will's consistency---his ability to simply show up, day after day---felt both admirable and slightly foreign.
 
 **RETURN TO WEDDING (2--3 paragraphs)**
 - The song ends. They separate. He squeezes her hand.
@@ -939,7 +939,7 @@ These are the oxygen that makes the darkness survivable for the reader.
   - Fashion: how to present herself to the world. Identity as something you construct.
   - Teaching: purpose. How to transform pain into service.
   - Jess and Rachel: that friendship can be real even when it's partial. That people can love you without holding the complete story.
-  - Ethan: the possibility that patterns can be broken. That love can come back in a different, better form. That a man can be present, consistent, and emotionally literate---the anti-pattern to every model of masculinity she inherited.
+  - Will: the possibility that patterns can be broken. That love can come back in a different, better form. That a man can be present, consistent, and emotionally literate---the anti-pattern to every model of masculinity she inherited.
 
 - **The five models of femininity,** mapped the way the men were mapped:
   - Her mother: endurance as womanhood. Survive. Don't break. Don't ask.

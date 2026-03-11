@@ -117,7 +117,7 @@ I raise mine back.
 
 Sparkling water. No olive. But I feel it anyway, the brine on my tongue, the memory of gin and candlelight and a booth where I first learned that warmth and emptiness could occupy the same body. I wonder which parts of him I carry. The charm, certainly. I can fill a room when I need to. I can make people laugh, put strangers at ease, become the version of myself that a moment requires. I have his smile, the public one, the one that opens doors.
 
-I wonder if I also carry the other thing. The absence behind the performance. The quiet retreat into a room full of strangers because strangers are easier than the people who actually know you. I wonder if Ethan, standing somewhere on the other side of this venue in his polished shoes, will spend decades watching me fill rooms the way my grandmother watched my grandfather fill them, present and accounted for and somewhere else entirely.
+I wonder if I also carry the other thing. The absence behind the performance. The quiet retreat into a room full of strangers because strangers are easier than the people who actually know you. I wonder if Will, standing somewhere on the other side of this venue in his polished shoes, will spend decades watching me fill rooms the way my grandmother watched my grandfather fill them, present and accounted for and somewhere else entirely.
 
 I lower my glass. The sun is on my face, Northern California in October, warm and golden and indifferent to what anyone makes of it. Across the patio, my grandfather has already turned back to the bar. Already making someone laugh. Already working the room with the effortless precision of a man who learned a long time ago that the room was easier than the silence.
 

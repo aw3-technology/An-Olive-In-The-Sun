@@ -5,11 +5,11 @@ The photographer arranges us like furniture.
 
 Bridesmaids here, groomsmen there, tilt your chin, relax your shoulders, closer together, a little more. I stand where I am told to stand and smile where I am told to smile and try not to think about how many times in my life I have been positioned by someone holding a camera.
 
-One of Ethan's groomsmen catches my eye during the group shot. He holds it a beat too long. Not aggressive, not obvious. Just long enough for me to notice, which is exactly long enough. He is standing to my left in a rented navy suit, and when the photographer says "tighter, everyone, squeeze in," his hand lands on the small of my back. Light. Casual. The kind of touch that could be nothing. The kind of touch that is never nothing.
+One of Will's groomsmen catches my eye during the group shot. He holds it a beat too long. Not aggressive, not obvious. Just long enough for me to notice, which is exactly long enough. He is standing to my left in a rented navy suit, and when the photographer says "tighter, everyone, squeeze in," his hand lands on the small of my back. Light. Casual. The kind of touch that could be nothing. The kind of touch that is never nothing.
 
 I stiffen. Then I unclench. The sequence so automatic it might as well be breathing: register, assess, override. Is this friendly. Is this more. Does it matter. Is it worth the cost of saying something, here, now, in a photograph, on my wedding day, in front of everyone. The calculation takes less than a second. I have been doing it since I was fourteen.
 
-I glance toward Ethan, who is standing with his best man near the bar, laughing about something, his hand resting on the edge of the counter the way it always does, easy and unselfconscious. Still there. Still his. The reflexive inventory: he is safe, I am safe, the room is safe. I press my thumbnail into my index finger. Once. Twice. Three times. The small invisible rhythm that quiets the noise. No one sees it. That is the point. A lifetime of hiding the machinery.
+I glance toward Will, who is standing with his best man near the bar, laughing about something, his hand resting on the edge of the counter the way it always does, easy and unselfconscious. Still there. Still his. The reflexive inventory: he is safe, I am safe, the room is safe. I press my thumbnail into my index finger. Once. Twice. Three times. The small invisible rhythm that quiets the noise. No one sees it. That is the point. A lifetime of hiding the machinery.
 
 The photographer takes the shot.
 

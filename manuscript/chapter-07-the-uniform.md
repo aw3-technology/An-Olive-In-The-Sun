@@ -7,7 +7,7 @@ She is crossing the gravel lot toward the ceremony area, one hand holding down t
 
 Caroline Reyes. Eighth grade. Sister Mary Catherine's homeroom. A lifetime ago.
 
-Guests are filtering in now. The venue is filling with voices and the particular rustle of people in formal clothing trying to look at ease. A woman I have not seen since college kisses my cheek and tells me I look radiant. A man whose name I cannot place shakes my hand and says he always knew Ethan would settle down. I smile. I thank him. I say something about being so glad they could come. The words come easily because they require nothing of me. They are the verbal equivalent of the programs stacked on the welcome table, printed and laminated and utterly beside the point.
+Guests are filtering in now. The venue is filling with voices and the particular rustle of people in formal clothing trying to look at ease. A woman I have not seen since college kisses my cheek and tells me I look radiant. A man whose name I cannot place shakes my hand and says he always knew Will would settle down. I smile. I thank him. I say something about being so glad they could come. The words come easily because they require nothing of me. They are the verbal equivalent of the programs stacked on the welcome table, printed and laminated and utterly beside the point.
 
 I adjust my champagne glass on the cocktail table. Move it a quarter inch to the left. Then back. Then slightly forward, so the base aligns with the edge of the napkin. An intrusive thought arrives without knocking: what if I trip walking down the aisle? I push it away. It comes back wearing different clothes. What if I trip and the dress tears? I push it under again and take a sip of champagne I do not taste.
 

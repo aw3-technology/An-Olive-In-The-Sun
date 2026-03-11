@@ -18,7 +18,7 @@ On the morning of her wedding, a young woman reckons with a lifetime of broken m
 First person, Olivia narrating. Present tense for the wedding day (immediacy), past tense for flashbacks (the texture of memory).
 
 ### Premise
-Olivia wakes on the morning of her wedding in Northern California from a nightmare in which Ethan never arrives at the altar. As the day unfolds---from getting ready, through the ceremony, to the reception---memories from her childhood, adolescence, and young adulthood surface, triggered by people, objects, music, and emotions. Each chapter moves between the present wedding timeline and a flashback that reveals a piece of the life that brought Olivia to this moment.
+Olivia wakes on the morning of her wedding in Northern California from a nightmare in which Will never arrives at the altar. As the day unfolds---from getting ready, through the ceremony, to the reception---memories from her childhood, adolescence, and young adulthood surface, triggered by people, objects, music, and emotions. Each chapter moves between the present wedding timeline and a flashback that reveals a piece of the life that brought Olivia to this moment.
 
 The book is structured as a single day containing an entire life.
 
@@ -82,7 +82,7 @@ The present-day wedding is not just a trigger device for flashbacks—it carries
 - Reading vows one last time—trying to believe her own words, hands shaking
 
 **Ceremony (Part IV) — Threshold**
-- Sees Ethan across the room—fourteen years of history in a single look
+- Sees Will across the room—fourteen years of history in a single look
 - His hand reaches for hers—the choice becoming physical, real
 - Standing at the altar—fear and presence coexisting, neither winning
 - Saying the vows—meaning them despite everything, voice breaking once

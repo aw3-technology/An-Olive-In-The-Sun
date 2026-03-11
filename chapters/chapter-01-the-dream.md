@@ -23,7 +23,7 @@ Then I looked up.
 
 The aisle stretched empty before me.
 
-Ethan never arrived.
+Will never arrived.
 
 No dark suit, no nervous hands running through his hair the way he always did before saying something that mattered. Just the empty space where he should have been, and the silence filling it like water.
 

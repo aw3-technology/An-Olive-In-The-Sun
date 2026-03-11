@@ -21,7 +21,7 @@ I let her. I hate that I let her. I hate that I needed to.
 
 She walks away with my phone already pressed to her ear, her voice low and efficient, the same tone she uses when a client's skin reacts badly to a peel. Crisis management in a calm register. She has always been better at this, the practical motion of fixing things while I stand still and feel them.
 
-I wish Ethan were here. Not across the venue in a room with his groomsmen, buttoning his jacket, running his hand through his hair the way he does when he is trying not to be nervous. Here. Beside me. He would look at the aisle arrangements and say something like: "They're flowers. They'll be beautiful." And I would believe him, not because he would be right but because the way he says things like that makes the tightness in my chest unclench, just slightly, just enough. That is maybe the most astonishing thing about him. Not that he calms me. That I let him.
+I wish Will were here. Not across the venue in a room with his groomsmen, buttoning his jacket, running his hand through his hair the way he does when he is trying not to be nervous. Here. Beside me. He would look at the aisle arrangements and say something like: "They're flowers. They'll be beautiful." And I would believe him, not because he would be right but because the way he says things like that makes the tightness in my chest unclench, just slightly, just enough. That is maybe the most astonishing thing about him. Not that he calms me. That I let him.
 
 I walk back to the chair. The ranunculus has shifted. I straighten it. Press the stem gently against the wood. Step back. Step forward. Adjust it again.
 
@@ -157,7 +157,7 @@ The chair sits in the third row, on the left side, in the October light.
 
 The ranunculus has not moved since I last adjusted it. The petals hold their shape, layered and pale, slightly translucent where the sun passes through. Around it, the rest of the ceremony assembles: the arch wound with greenery, the programs stacked on a table by the entrance, the aisle runner not yet unrolled. Everything in the early stages of becoming something, the raw materials of a day that will mean what I decide it means.
 
-My phone vibrates. Ethan: *Thinking of you.*
+My phone vibrates. Will: *Thinking of you.*
 
 Three words. I press my thumb against the screen and hold it there. I cannot feel the warmth of them but I try anyway.
 

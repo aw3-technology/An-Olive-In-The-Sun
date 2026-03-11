@@ -205,9 +205,9 @@
 
 ---
 
-### 14. College Relationship (First Time with Ethan)
+### 14. College Relationship (First Time with Will)
 **Chapter:** 19 | **Pacing:** Intense, consuming, then devastating --- a relationship in compressed time
-**What happens:** Olivia meets Ethan in college. He is intense, volatile, full of unprocessed anger about his own cold family---parents who stayed married but modeled endurance without warmth. The relationship is consuming. It becomes chaotic and painful. They break up.
+**What happens:** Olivia meets Will in college. He is intense, volatile, full of unprocessed anger about his own cold family---parents who stayed married but modeled endurance without warmth. The relationship is consuming. It becomes chaotic and painful. They break up.
 **Emotional core:** First serious love. Learning that intensity is not the same as health. The grief of Mark's death makes her cling harder.
 
 **Beats:**
@@ -334,7 +334,7 @@
 
 ---
 
-### 23. Reconnecting with Ethan
+### 23. Reconnecting with Will
 **Chapter:** 20 | **Pacing:** Charged, careful, hopeful --- two people circling each other with open eyes
 **What happens:** A mutual friend's housewarming party in San Francisco. Olivia is thirty-three. Fourteen years collapse into the space between the refrigerator and the door. The relationship begins again.
 **Emotional core:** Patterns can be interrupted. People can change. Love can return in a mature form.
@@ -368,7 +368,7 @@
 
 **Running threads through the wedding day:**
 - **OCD/anxiety:** Olivia's mental health is embodied throughout---counting (mile markers, chairs, buttons, heartbeats), intrusive thought loops (*what if the zipper breaks, what if I trip, what if I'm making a mistake*), rituals (pressing thumbnail into finger in groups of four, straightening objects, checking her phone compulsively), and the invisible labor of managing a brain that treats every moment as a potential emergency.
-- **Ethan (Ethan):** Present from Chapter 1 onward through texts, glimpses across the venue, and Olivia's thoughts about him. He is a felt presence even when physically separated---a counterweight to her anxiety, someone who knows about the counting and the medication and chose to stay.
+- **Will (Will):** Present from Chapter 1 onward through texts, glimpses across the venue, and Olivia's thoughts about him. He is a felt presence even when physically separated---a counterweight to her anxiety, someone who knows about the counting and the medication and chose to stay.
 - **Real-time conflict:** The wedding day is not smooth. Speaker system failures (Ch. 5), wrong flowers delivered (Ch. 6), her parents' tense exchange (Ch. 12), the ceremony running behind schedule (Ch. 13), the loaded symbolism of her father walking her down the aisle (Ch. 19). These give Olivia's anxiety real-world material and prevent the wedding from feeling like a benign backdrop.
 
 *These scenes provide the moment-to-moment progression of the wedding day itself. Each is brief in the text (1--3 paragraphs typically) but carries specific emotional weight. Together they form the wedding day's own arc: Anxiety → Disorientation → Panic → Threshold → Release.*
@@ -380,22 +380,22 @@ Olivia wakes from the nightmare. Hotel room. Northern California sunlight cuttin
 
 ### 26. Getting Dressed
 **Part I** | **Wedding arc: Anxiety and Control**
-Mother arrives to help with the dress. Her hands shake. The intimacy of being dressed by the woman who raised her---their bodies close, the fabric between them. Olivia checks her phone---no new texts from Ethan since 6:14 a.m. She counts the minutes since his last message. An intrusive thought as the zipper goes up: *what if it breaks during the ceremony?* She pushes it away, touches the seam twice. He is in another room in this hotel, getting dressed with his groomsmen. She wonders if he slept. She wonders if he dreamed.
+Mother arrives to help with the dress. Her hands shake. The intimacy of being dressed by the woman who raised her---their bodies close, the fabric between them. Olivia checks her phone---no new texts from Will since 6:14 a.m. She counts the minutes since his last message. An intrusive thought as the zipper goes up: *what if it breaks during the ceremony?* She pushes it away, touches the seam twice. He is in another room in this hotel, getting dressed with his groomsmen. She wonders if he slept. She wonders if he dreamed.
 **Emotional beat:** Two women who have survived the same family, standing in front of a mirror together. OCD humming underneath.
 
 ### 27. Sister Arrives
 **Part I** | **Wedding arc: Anxiety and Control**
-Professional, steady hands doing makeup. The contrast between them sharpens---her sister's groundedness against Olivia's interior storm. Olivia asks if the eyeliner is even---both sides, she needs them to match exactly. Asks again. Her sister doesn't roll her eyes. A text from Ethan: *Are you nervous?* Her: *Terrified. You?* Him: *Same. In a good way.* She reads it twice.
+Professional, steady hands doing makeup. The contrast between them sharpens---her sister's groundedness against Olivia's interior storm. Olivia asks if the eyeliner is even---both sides, she needs them to match exactly. Asks again. Her sister doesn't roll her eyes. A text from Will: *Are you nervous?* Her: *Terrified. You?* Him: *Same. In a good way.* She reads it twice.
 **Emotional beat:** The comfort of someone who survived the same household, even if they never talk about it.
 
 ### 28. Driving to the Venue
 **Part I** | **Wedding arc: Anxiety and Control**
-Northern California landscape. Dry hills, vineyards, sunlight. Olivia counts mile markers. Taps the armrest in groups of four. Checks the time, calculates minutes until the ceremony. A photo from Ethan: his shoes beside his suit. *Ready when you are.* The thought of someone choosing to wait---not trapped, but choosing---still feels foreign.
+Northern California landscape. Dry hills, vineyards, sunlight. Olivia counts mile markers. Taps the armrest in groups of four. Checks the time, calculates minutes until the ceremony. A photo from Will: his shoes beside his suit. *Ready when you are.* The thought of someone choosing to wait---not trapped, but choosing---still feels foreign.
 **Emotional beat:** The dread of arriving at the place where everything becomes real. Math as soothing ritual.
 
 ### 29. Seeing the Empty Chair
 **Part I** | **Wedding arc: Anxiety and Control**
-A seat reserved for someone who is not there. Grief pierces through the careful composure she has built all morning. Mark's chair. The coordinator pulls her aside---the florist sent white roses instead of ranunculus. Wrong flowers. The tightening in her chest. Her sister takes her phone: "I'll handle it." She wishes Ethan were here. He would say: *They're flowers. They'll be beautiful.* She adjusts the flower on the empty chair. Adjusts it again. A text from Ethan: *Thinking of you.*
+A seat reserved for someone who is not there. Grief pierces through the careful composure she has built all morning. Mark's chair. The coordinator pulls her aside---the florist sent white roses instead of ranunculus. Wrong flowers. The tightening in her chest. Her sister takes her phone: "I'll handle it." She wishes Will were here. He would say: *They're flowers. They'll be beautiful.* She adjusts the flower on the empty chair. Adjusts it again. A text from Will: *Thinking of you.*
 **Emotional beat:** The first crack. Composure breaks. Wrong flowers become a vessel for the anxiety she's been managing all morning.
 
 ### 30. Grandfather at the Bar
@@ -413,14 +413,14 @@ Quiet. Composed. Enduring. Their stillness is either the most reassuring or the 
 A quiet moment alone. Anxiety rising. The fluorescent light of a bathroom. Her body remembers the hospital. She steadies herself against the counter. This is the closest she comes to breaking.
 **Emotional beat:** The nadir of the wedding day. The body's memory is more powerful than the mind's resolve.
 
-### 33. Seeing Ethan / Processional Begins
+### 33. Seeing Will / Processional Begins
 **Part IV** | **Wedding arc: Threshold**
 Across the room for the last time before the altar. History in his face. Fourteen years in a single look. She checks her vows in her pocket---still there. She checked thirty seconds ago. She checks again. The processional is being organized. Her father approaches, awkward and formal. He will walk her down the aisle---the irony of being "given away" by a man who left. She takes his arm. His hand is shaking. So is hers. The music shifts. She steps forward.
 **Emotional beat:** The fear doesn't disappear. But it is no longer alone. The threshold moment.
 
 ### 34. The Ceremony
 **Part IV** | **Wedding arc: Threshold**
-She walks down the aisle. Her father beside her. Every face in the crowd is a chapter of her life. Ethan standing at the altar, eyes wet, mouthing something she can't hear---she thinks it might be *hi.* Her father places her hand in his. The transfer of weight. The officiant speaks---institutional language wrapping around something that cannot be institutionalized. Olivia's OCD fires: she counts the buttons on his jacket, counts the guests in the front row. She catches herself. Looks at his face instead---the one thing in this room she does not need to count. He is looking at her the way no one has ever looked at her. Not appraising, not performing. Just looking. Like she is enough.
+She walks down the aisle. Her father beside her. Every face in the crowd is a chapter of her life. Will standing at the altar, eyes wet, mouthing something she can't hear---she thinks it might be *hi.* Her father places her hand in his. The transfer of weight. The officiant speaks---institutional language wrapping around something that cannot be institutionalized. Olivia's OCD fires: she counts the buttons on his jacket, counts the guests in the front row. She catches herself. Looks at his face instead---the one thing in this room she does not need to count. He is looking at her the way no one has ever looked at her. Not appraising, not performing. Just looking. Like she is enough.
 **Emotional beat:** The genuine climax of the wedding day and the book. Not triumph over fear---coexistence with it. The counting stops, briefly, in his face.
 
 ### 35. The Vows

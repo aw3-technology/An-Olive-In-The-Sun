@@ -159,7 +159,7 @@ I count the mile markers. Eleven. Twelve. Thirteen. My fingers tap the armrest i
 
 I check the time on my phone. 10:47 a.m. The ceremony is at 2:00. That is one hundred and ninety-three minutes. I divide this by manageable intervals. Forty-eight sets of four, with one left over. The remainder bothers me. I recalculate. The math is soothing. The math is always soothing. It does not matter what the numbers mean. It matters that they hold still.
 
-A photo arrives from Ethan. His shoes, polished, dark brown, sitting neatly beside his suit on a hotel bed. *Ready when you are.*
+A photo arrives from Will. His shoes, polished, dark brown, sitting neatly beside his suit on a hotel bed. *Ready when you are.*
 
 I stare at the photo. The shoes placed carefully, toes pointing the same direction. The suit laid flat without a wrinkle. The quiet order of a man preparing to wait for someone. The thought of it, of someone choosing to wait, not trapped in a passenger seat with a towel pressed to his hand but choosing, standing still of his own volition because he wants to be there when I arrive, still feels foreign. Like a language I am learning late. Like something I believe in theory but have not yet memorized in my body.
 

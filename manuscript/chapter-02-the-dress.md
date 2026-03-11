@@ -11,7 +11,7 @@ I step aside to let her in. She moves through the room the way she moves through
 
 "We should start soon," she says. "The photographer will be here by ten."
 
-I check my phone. No new messages from Ethan since 6:14 a.m. I count the minutes. It has been almost two hours. Two hours is nothing. Two hours is a shower, breakfast, getting dressed with his groomsmen. Two hours is not a sign. I know this. I know it the way I know the earth orbits the sun, which is to say completely and also not at all, because knowing has never once stopped the feeling.
+I check my phone. No new messages from Will since 6:14 a.m. I count the minutes. It has been almost two hours. Two hours is nothing. Two hours is a shower, breakfast, getting dressed with his groomsmen. Two hours is not a sign. I know this. I know it the way I know the earth orbits the sun, which is to say completely and also not at all, because knowing has never once stopped the feeling.
 
 I set the phone facedown on the nightstand.
 

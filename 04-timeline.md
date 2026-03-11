@@ -75,7 +75,7 @@
 
 **Ripple effects of Mark's suicide (traced forward):**
 - **Age 18 (college):** Arrives at Jesuit university carrying raw grief. Struggles with faith are not just intellectual---a God who allows this feels impossible. Turns to philosophy because it lets her think about suffering instead of feeling it.
-- **Age 18--20 (relationship):** The intensity of her first relationship with Ethan is partly grief-driven---she is desperate for something to hold onto. The relationship becomes consuming because she cannot tolerate another loss.
+- **Age 18--20 (relationship):** The intensity of her first relationship with Will is partly grief-driven---she is desperate for something to hold onto. The relationship becomes consuming because she cannot tolerate another loss.
 - **Age 22--24 (Hollywood):** The modeling/party phase is partly running from grief. Noise, spectacle, and substances drown out what she has not yet processed.
 - **Age 24--25 (hospitalization):** The breakdown comes 7--8 years after Mark's death. Unprocessed grief has compounded with every subsequent loss and instability. The hospitalization is not just about bipolar disorder---it is the bill coming due for years of deferred mourning.
 - **Age ~34 (wedding):** The empty chair at the ceremony is Mark's. His absence is the ghost in every chapter. Choosing to marry means choosing love in a family where love has led to divorce, addiction, and death.
@@ -92,13 +92,13 @@
 - The dialectic resonates deeply: progress through contradiction
 
 **Age 18--19**
-- Meets Ethan in a philosophy elective, freshman year
+- Meets Will in a philosophy elective, freshman year
 - The relationship is immediate, intense, consuming---two grief-driven people colliding
 - Philosophy major declared
 - Deep engagement with Hegel, existentialism, questions of meaning
 
 **Age 19--20**
-- Relationship with Ethan becomes volatile and painful
+- Relationship with Will becomes volatile and painful
 - They break up (end of sophomore year)
 - Olivia continues at the university, completes philosophy degree
 
@@ -171,7 +171,7 @@
 - Taylor Swift, Olivia Rodrigo, Dua Lipa era
 
 **Age ~33**
-- **Reconnects with Ethan**
+- **Reconnects with Will**
 - A mutual friend's dinner party---fourteen years after the breakup at 19
 - Both have changed profoundly
 - The relationship begins again, slowly and deliberately
@@ -211,5 +211,5 @@
 | Stalked by parent | 28--29 | Ch. 23 | Adulthood doesn't guarantee safety for women; but Olivia navigates it with agency |
 | Mother's boss fraud | 28--29 | Ch. 24 | Adults as unreliable narrators of stability; surfaces lie, even in positions of power |
 | The quiet years (teaching) | 29--32 | --- | First sustained stability; the unglamorous work of maintaining a life |
-| Reconnect with Ethan | ~33 | Ch. 20 | Fourteen years after the breakup; patterns can be interrupted; love returns in a different form |
+| Reconnect with Will | ~33 | Ch. 20 | Fourteen years after the breakup; patterns can be interrupted; love returns in a different form |
 | Wedding | ~34 | Present timeline | The choice: love despite every reason not to; integration of the fragmented self |

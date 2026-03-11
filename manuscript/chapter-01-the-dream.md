@@ -23,7 +23,7 @@ Then I looked up.
 
 The aisle stretched empty before me.
 
-Ethan never arrived.
+Will never arrived.
 
 No dark suit, no nervous hands running through his hair the way he always did before saying something that mattered. Just the empty space where he should have been, and the silence filling it like water.
 
@@ -111,7 +111,7 @@ Somewhere below, someone is testing speakers at the venue. A short burst of musi
 
 The wedding is already assembling itself. Tables, flowers, chairs. All the small architecture people build with such care to create the appearance of permanence.
 
-My phone lights up. A message from Ethan, sent at 6:14 a.m.: *Still here. Still showing up. Coffee's on me after.*
+My phone lights up. A message from Will, sent at 6:14 a.m.: *Still here. Still showing up. Coffee's on me after.*
 
 I read it twice. Three times.
 
