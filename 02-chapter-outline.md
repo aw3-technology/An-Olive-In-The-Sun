@@ -7,11 +7,14 @@ Each chapter contains:
 - **Trigger** (what sparks the memory)
 - **Flashback** (past anecdote)
 - **Emotional purpose** (what this chapter reveals about Olivia)
+- **Central question movement** (how this chapter moves Olivia toward answering: *Am I destined to repeat the broken relationships of my family?*)
 
 **Running threads in the wedding timeline:**
+- **The central question** drives every chapter. Olivia is asking, consciously or not: *Am I destined to repeat the broken relationships of my family?* Every flashback must illuminate this question. Every wedding moment should register Olivia's awareness of the patterns she is either repeating or interrupting. If a chapter cannot articulate how it moves toward answering this question, it needs to be reworked or cut.
 - **Olivia's OCD/anxiety** is present throughout the wedding day---counting, rituals, intrusive thoughts, the need for control. These behaviors appear in most chapters' wedding sections, not just flashbacks. She counts chairs, adjusts objects, checks her phone compulsively, presses her thumbnail into her finger in groups of four, demands symmetry from her sister's makeup application.
 - **Will (the fiancé)** is a felt presence from Chapter 1 onward---through texts, glimpses across the venue, thoughts about what he would say, anticipation. He is not absent until Chapter 19; he is threaded through the day even when physically separated from her.
 - **Real-time wedding conflict** runs through the day: speaker system failures (Ch. 5), wrong flowers delivered (Ch. 6), parents' tense exchange (Ch. 12), ceremony timeline slipping (Ch. 13), the father's awkward role walking her down the aisle (Ch. 19). The wedding is not smooth---it is a day that constantly threatens to spiral, giving Olivia's anxiety real-world material to work with.
+- **Tone balance** must be maintained across all parts. Every section---even the darkest---needs at least one moment of humor, beauty, or quiet peace to prevent emotional exhaustion. Conversely, even the warmest sections should carry Olivia's anxiety underneath. No part of the book should be tonally uniform.
 
 **Structural notes:**
 - 27 chapters and an epilogue across 5 parts
@@ -42,6 +45,8 @@ Each chapter contains:
 
 **Emotional purpose:** Establishes the central fear---that love does not last. Sets up the generational pattern and the 5-year symmetry. Introduces the sister relationship, the Hegel framework, and the olive metaphor. Plants seeds for multiple later threads (mother, stepfather, philosophy, the sister's divergent path) while keeping the focus on the morning's emotional landscape.
 
+**Central question movement:** Poses the question in its starkest form. Olivia sees three generations of collapsed marriages and asks: will mine be the fourth? The answer feels like yes. The chapter should end not with hope but with the stubborn refusal to accept that answer as final.
+
 ---
 
 ### Chapter 2 --- The Dress
@@ -53,6 +58,8 @@ Each chapter contains:
 **Flashback:** Early childhood after the divorce. Her mother coping---working long hours as an executive assistant, drinking on weekends, holding things together by willpower. The drinking culture on her mother's side of the family. Family gatherings where alcohol was constant.
 
 **Emotional purpose:** Introduces the mother as a figure of endurance but also hidden pain.
+
+**Central question movement:** Shows Olivia the first pattern she might repeat: coping through willpower and alcohol instead of healing. Her mother survived but didn't break the cycle. Olivia inherits the endurance but begins to suspect it isn't enough.
 
 ---
 
@@ -66,6 +73,8 @@ Each chapter contains:
 
 **Emotional purpose:** Introduces the theme of fragmented role models. Shows how the same family can produce very different people---and that the "stable" one paid a price too. The sister is not simply grounded; she is holding something down.
 
+**Central question movement:** Reveals that "not repeating the pattern" has different meanings. Her sister avoided collapse by suppressing everything. Olivia avoided suppression by collapsing. Neither path alone breaks the cycle. The question isn't just whether Olivia will repeat her parents' marriages, but whether she can find a third option her sister couldn't.
+
 ---
 
 ### Chapter 4 --- The Lake
@@ -77,6 +86,8 @@ Each chapter contains:
 **Flashback:** Stepfather Mark---the man her mother left her father for---drunk, putting his hand into the drag boat propeller. Young Olivia driving them to the hospital before she had her license. Blood, panic, the weight of responsibility placed on a child. The bitter irony: her mother traded one broken home for another.
 
 **Emotional purpose:** First major anecdote of chaos. Establishes Mark as a figure of reckless instability---and deepens the wound of the divorce by showing what her mother chose instead. Shows Olivia taking on adult responsibilities far too young.
+
+**Central question movement:** Her mother left one broken relationship and walked into another. The pattern isn't just about marriages ending; it's about choosing the wrong person, or choosing for the wrong reasons. Olivia begins to understand that the question isn't only "will love last?" but "can I trust my own judgment about who to love?"
 
 ---
 
@@ -94,6 +105,8 @@ Each chapter contains:
 
 **Emotional purpose:** Deepens the portrait of Mark. Shows how instability can be normalized. Introduces the theme of adults behaving like children.
 
+**Central question movement:** Olivia learns that dysfunction can look normal from inside. The family's ability to laugh at chaos is itself a pattern she might repeat: the normalization of what should be alarming. Breaking the cycle requires not just choosing differently, but seeing clearly.
+
 ---
 
 ### Chapter 6 --- The Empty Chair
@@ -105,6 +118,8 @@ Each chapter contains:
 **Flashback:** Mark's substance abuse escalating. The slow reveal begins---not the full story of his death yet, but the descent. The family pretending things were manageable.
 
 **Emotional purpose:** Builds tension around Mark's story. The reader begins to sense something terrible is coming. The empty chair becomes a symbol of grief.
+
+**Central question movement:** The empty chair is the physical manifestation of what happens when patterns go unchecked. Mark's descent shows the endpoint of self-destruction that the family couldn't prevent. Olivia's terror at the wedding isn't abstract: this is what failure looks like. A chair with no one in it.
 
 ---
 

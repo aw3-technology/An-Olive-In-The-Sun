@@ -177,7 +177,7 @@ My mother looks at me across the table. Her eyes are wet.
 
 "I am so proud of you," she says, and her voice splinters on the last word, the d dissolving into breath, and the room makes a sound that is not applause, not yet, but something softer. A collective exhale. The sound of a hundred people allowing a woman to be imperfect in front of them.
 
-She turns to Ethan. She says something about being grateful, about trust, about knowing her daughter is loved. The words are ordinary. They are the words every mother says at every wedding, the liturgy of maternal blessing, and they are not enough and they are too much and they are exactly what she is capable of and I would not change a single one.
+She turns to Will. She says something about being grateful, about trust, about knowing her daughter is loved. The words are ordinary. They are the words every mother says at every wedding, the liturgy of maternal blessing, and they are not enough and they are too much and they are exactly what she is capable of and I would not change a single one.
 
 She does not mention Mark by name. She says "everything our family has been through" and the room hears strength, resilience, the vague adversity that makes a good wedding speech, and I hear the apartment with the beige walls and the soup on the stove and the television turned low and the name we did not say. I hear the parking lot where she sat in her car before walking into the hospital where her daughter was wearing a paper gown. I hear the silence on the phone the night her boss was sentenced, the flatness in her voice when she said she needed to update her resume, the decades of surface that held because the alternative was a collapse she could not afford.
 

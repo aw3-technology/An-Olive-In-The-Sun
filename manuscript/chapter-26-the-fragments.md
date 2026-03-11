@@ -105,7 +105,7 @@ The five women who showed me what it meant to be a woman, and not one of them sh
 
 I took something from each of them. I left something behind.
 
-The three men. My father, Mark, my grandfather. Distance, chaos, performance. Three versions of masculinity, none of them complete, each of them offering something I needed and withholding something I could not do without. My father gave me curiosity. Mark gave me vigilance. My grandfather gave me taste. And Ethan, who is not part of the three because Ethan is the answer to the three, the man who arrived carrying his own damage and did not perform it or weaponize it but sat with it, quietly, in a therapist's office, in a journal no one read, in the slow patient work of learning to hold something without gripping too hard.
+The three men. My father, Mark, my grandfather. Distance, chaos, performance. Three versions of masculinity, none of them complete, each of them offering something I needed and withholding something I could not do without. My father gave me curiosity. Mark gave me vigilance. My grandfather gave me taste. And Will, who is not part of the three because Will is the answer to the three, the man who arrived carrying his own damage and did not perform it or weaponize it but sat with it, quietly, in a therapist's office, in a journal no one read, in the slow patient work of learning to hold something without gripping too hard.
 
 No one showed me exactly how to do this.
 
@@ -123,7 +123,7 @@ The light in the tent is fully purple now. The sun has gone behind the hills and
 
 I look across the room.
 
-Ethan is standing near the garden entrance, talking to his best man, holding a glass of water. He is always holding water at events, a quiet declaration that has never needed explaining, a choice he made years ago that sits beside all his other choices, unperformed, unremarked upon. He laughs at something, and his face does the thing it does, the serious expression breaking open, the transformation that still surprises me after all this time, the way the whole architecture of his face rearranges itself around the act of joy.
+Will is standing near the garden entrance, talking to his best man, holding a glass of water. He is always holding water at events, a quiet declaration that has never needed explaining, a choice he made years ago that sits beside all his other choices, unperformed, unremarked upon. He laughs at something, and his face does the thing it does, the serious expression breaking open, the transformation that still surprises me after all this time, the way the whole architecture of his face rearranges itself around the act of joy.
 
 He catches my eye.
 

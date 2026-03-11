@@ -25,6 +25,10 @@ The book is structured as a single day containing an entire life.
 ### Central Question
 Can Olivia choose love and stability when every example she has been given has collapsed?
 
+Or, more starkly: *Am I destined to repeat the broken relationships of my family?*
+
+**This question is the novel's north star.** Every chapter must move Olivia closer to answering it. Every flashback, every wedding moment, every philosophical reflection should connect---directly or indirectly---to whether patterns are destiny or whether they can be interrupted. If a chapter does not serve this question, it does not belong in the book. The wedding becomes the moment of decision: not a fairy tale ending, but a conscious act of choosing differently with full knowledge of what she comes from.
+
 ### The Title Metaphor
 - **Olivia = Olive**
 - Olives grow in poor soil, under relentless sun, in rocky and harsh landscapes
@@ -41,6 +45,19 @@ Can Olivia choose love and stability when every example she has been given has c
 5. **Understanding** --- She sees each person in her life as a fragment, not a failure
 6. **Integration** --- She realizes she has been assembling her own model of how to live
 7. **Choice** --- She chooses the wedding, not from naivety, but from earned understanding
+
+### Three-Act Structure (within the Seven Stages)
+
+The seven stages map to a clear three-act transformation:
+
+**Act I --- Confusion and Instability (Parts I--II, Ch. 1--12)**
+Fear, Recognition, Investigation. Olivia is awash in the evidence that love fails. Childhood instability, adolescent displacement, identity confusion. The central question is posed but feels unanswerable. The reader should feel the weight of inherited dysfunction.
+
+**Act II --- Collapse and Searching (Part III, Ch. 13--18)**
+Darkness and Understanding. The worst memories surface. The bottom is reached. But within the collapse, a framework begins to emerge: philosophy, self-reliance, the first recognitions that pain can be understood without being repeated. The central question shifts from "Will this happen to me?" to "Why did it happen at all?"
+
+**Act III --- Integration and Self-Understanding (Parts IV--V, Ch. 19--27 + Epilogue)**
+Integration and Choice. Olivia builds a life from fragments. Teaching, the return of Will, the daily work of recovery. The central question finds its answer: patterns are not destiny. They are stories waiting to be interrupted. The wedding is the proof.
 
 ### Emotional Arc → Part Mapping
 
@@ -111,6 +128,28 @@ The present-day wedding is not just a trigger device for flashbacks—it carries
 ### Setting
 - **Present timeline:** A wedding venue in Northern California, autumn
 - **Memory timeline:** Northern California, Catholic school, Jesuit college, Hollywood, Barcelona, various schools and homes
+
+### Narrative Discipline
+
+The book has an unusually large amount of compelling material. This is a strength, but it carries a risk: if every anecdote appears, the book will feel scattered. The best memoirs focus on **10--15 essential moments** that carry the full emotional weight.
+
+**Every scene must earn its place** by doing at least one of the following:
+1. Moving Olivia closer to answering the central question
+2. Revealing character that cannot be revealed any other way
+3. Advancing the emotional arc from fear toward choice
+4. Deepening the reader's understanding of a generational pattern
+
+If a scene is merely interesting or merely happened, it does not belong. An anecdote that does not serve the central question is a digression, no matter how vivid. The difference between a 7/10 memoir and a 10/10 memoir is the willingness to cut material that doesn't drive the story forward.
+
+### Tone Balance
+
+The book contains trauma, addiction, mental health struggles, chaotic relationships, and suicide. Without counterweight, this material will exhaust the reader. The book needs deliberate moments of:
+
+- **Humor** --- Olivia's dry, dark wit is a survival tool. It should surface naturally in every part of the book, not just in the lighter chapters. The humor doesn't diminish the pain; it proves Olivia has survived it.
+- **Beauty** --- Sensory beauty (Northern California light, Barcelona architecture, olive oil on bread, the grandmother's kitchen) provides the reader oxygen between dark stretches. Each part should contain at least one moment of genuine, earned beauty.
+- **Quiet peace** --- Moments where nothing is wrong. The Sunday drive with her mother. Cooking pasta alone. Will's text messages. These ordinary moments are the emotional foundation the harder chapters rest on. Without them, the reader has nowhere to stand.
+
+The darkest sections (Part III especially) must be leavened: Ch. 13 opens warm, Ch. 14 leads with beauty before collapse, Ch. 17 carries intellectual joy. But this principle applies to every part. Even in the morning anxiety of Part I, there should be a flash of humor or beauty. Even in the reception warmth of Part V, Olivia's anxiety should still hum underneath. Tonal monotony in any direction weakens the book.
 
 ### Narrative Structure
 - 27 chapters and an epilogue across 5 parts
