@@ -5,7 +5,7 @@ I step outside and the air changes everything.
 
 The reception is behind me now, its noise muffled by the heavy wooden door I pull shut with both hands. Music, laughter, the clink of glasses, the low roar of a hundred people performing happiness or maybe, for some of them, simply being happy. I cannot tell the difference tonight. I am not sure there is one.
 
-The terrace is empty. Stone underfoot, still warm from the day. Beyond it, the hillside drops away in long golden folds toward the valley, and the sun is doing something to the sky that I would call dramatic if it were a painting and instead I will just call true. The light is amber at the horizon, cooling to violet overhead, and the hills are lit from the side in a way that makes every ridge and furrow visible, the landscape revealing its architecture the way a face reveals its age when the light comes from the right angle.
+The terrace is empty. Stone underfoot, still warm from the day. A barn owl sits on the ridge beam of the old stone barn at the edge of the property, its pale face turned toward the vineyard, perfectly still. It has been there since dusk. I saw it arrive while the toasts were winding down, a white shape gliding low over the vines without a sound, settling on the beam next to the broken weathervane as though it had been expected. Beyond the barn, the hillside drops away in long golden folds toward the valley, and the light is amber at the horizon, cooling to violet overhead, and the hills are lit from the side in a way that makes every ridge and furrow visible.
 
 I breathe.
 
@@ -27,15 +27,7 @@ They are not straight. They were never going to be straight.
 
 I walk closer. The nearest tree is shorter than I am, its canopy dense with small silver-green leaves that shiver slightly in the evening breeze. The trunk is maybe eight inches across but it looks ancient, its surface a topography of scars and ridges, the record of a life spent enduring conditions that would have killed something less stubborn. I touch it. The bark is cool and rough under my fingers, textured like something geological, like something that has been here longer than anything built by humans.
 
-Olives grow in poor soil. I know this. I learned it years ago, one of those facts that lodged somewhere in my mind without explanation, waiting for the moment when it would matter. They grow in rocky ground, in limestone and clay, in the kind of terrain that looks, from the road, like nothing could survive there. They grow under relentless sun, in climates where the summer is long and dry and the heat presses down on everything like a hand. They do not need much water. They do not need much care. What they need is time and pressure and the specific stubbornness of a living thing that refuses to die just because the conditions are wrong.
-
-And under pressure, they produce oil. Something nourishing. Something valuable. The same heat and poor soil and rocky ground that twist the trunk and stunt the branches also concentrate the fruit, push the flavor deeper, create the dense green-gold liquid that I tasted on bread in a cafe in Barcelona when my body was broken and my girlfriend had left and I was alone in a way I thought might be permanent. Olive oil. The thing that feeds you when nothing else will. The thing that comes from difficulty, not despite it.
-
-I stand in front of the tree and I think about my life.
-
-Poor soil. Rocky ground. A father who loved music more than he loved being present. A mother who survived by never stopping to feel what she was surviving. A stepfather who put his hand in a boat propeller and drove a go-kart down the 101 and chose, in the end, to leave in the one way no one could follow. A hospital with fluorescent lights and a paper gown that erased everything I had ever constructed about who I was. A diagnosis delivered like a weather report. A pharmacy in my purse every day for the rest of my life. Schools I can barely remember the names of. A girl in Barcelona who could not be needed. A boy in college who loved me the way a fire loves a field. Fourteen years of silence. Counting. Checking. The lock, the stove, the door, the lock again.
-
-Relentless sun.
+I think about a cafe in Barcelona where I ate bread dipped in olive oil while my body was breaking and the oil was the densest, most nourishing thing I had tasted in weeks. Something from trees like this one. From rocky ground and relentless heat.
 
 I used to believe that my life was evidence of something broken. A pattern repeating. Grandparents who divorced. Parents who divorced. A family where love was a temporary condition, a weather system that passed through and left damage. I built a file in my head, entry after entry, the data accumulating across decades until the conclusion felt not like a belief but like a law of physics. Love collapses. This is what the evidence shows.
 
@@ -55,11 +47,7 @@ The counting does not stop. I just stop needing it to stop. That is the differen
 
 I press my thumbnail into my index finger. Once. Twice. Three times. Four. The ritual is there. It is always there. And I am also here, outside, with the olive trees and the sunset and the faint sound of music leaking through the walls of the reception hall, and both things are true at the same time, and I have stopped asking them to cancel each other out.
 
-The sun drops lower. The light turns the color of something I don't have a word for. Not gold. Not amber. Something between the two, the color of olive oil held up to a window, dense and luminous and warm.
-
-My life has been difficult soil. But I grew anyway.
-
-Not straight. Not the way I was supposed to grow, the way the script I was handed said I should grow. Not the tall, symmetrical, well-watered life of a girl whose parents stayed married and whose childhood was stable and whose brain did not need pharmaceutical management to function. I grew sideways. I grew twisted. I grew in every direction the pressure pushed me, and the directions were not the ones I would have chosen, and they are the only ones that are mine.
+The sun drops lower. The light turns the color of something I don't have a word for. Not gold. Not amber. Something between the two, dense and luminous and warm.
 
 I think about my mother, inside, at the table where she gave a toast two hours ago with her voice breaking on a word I couldn't hear because I was crying. I think about my father, somewhere near the bar, probably holding a glass of something he won't finish, standing at the comfortable distance he has maintained my entire life, close enough to see, too far to reach. I think about my sister, who told me this morning that she was jealous, and meant it, and then picked up the mascara wand and kept going. I think about Mark, who is not here, whose chair is empty, whose absence is the loudest silence in the room. I think about the professor in the tweed jacket who taught me that history moves forward through contradiction, and about the hospital bed where I lay counting ceiling tiles at three in the morning, and about the cafe in Barcelona where I ate bread with olive oil and decided, without deciding, that I would keep feeding myself even when no one was watching.
 

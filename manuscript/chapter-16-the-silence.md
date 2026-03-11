@@ -35,7 +35,7 @@ I mention this because the ordinariness of it is the point. I was in my bedroom,
 
 The phone was the house line. The landline in the kitchen, which rang so rarely by then that the sound itself was startling, an artifact from a previous era, like a telegram or a knock on the door after midnight. I walked down the hall. The carpet was beige. The light in the hallway was the color of weak tea. I picked up the receiver and said hello.
 
-My mother was on the other end. Her voice did something I had never heard it do before. It came apart. Not loudly. Not with the drama of a scream or the theatrics of a sob. It came apart the way fabric comes apart when it is old and thin, fiber by fiber, each word separating from the next with a small, terrible patience.
+My mother was on the other end. Her voice did something I had never heard it do before. It came apart. Not loudly. Each word separating from the next.
 
 She said my name. She said it again. Then she said Mark was dead.
 
@@ -57,7 +57,7 @@ He was not coming out this time.
 
 My mother was in a small room off the main corridor. A room I had not noticed the first time, a room with a door that closed and chairs that were upholstered instead of plastic, the kind of room hospitals reserve for conversations that cannot happen in public. She was sitting in one of the chairs with her hands in her lap. Her purse was on the floor beside her, its contents half spilled, as though she had dropped it and not bothered to collect what fell. A lipstick. A pen. Her work badge on its lanyard. The small machinery of a normal day scattered across the floor like evidence.
 
-She looked up when I walked in. Her eyes were red but she was not crying. She had moved past crying into something else, a territory beyond tears, a place where the body has exhausted its primary responses and is now operating on a system so deep and old it does not have a name. She looked at me the way you look at someone when you are drowning and they are standing on the shore and you know they cannot reach you but you need to see their face anyway.
+She looked up when I walked in. Her eyes were red but she was not crying. She had moved past crying into something else. She looked at me.
 
 "Sit down," she said.
 

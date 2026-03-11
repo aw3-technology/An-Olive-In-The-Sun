@@ -113,6 +113,10 @@ She waited.
 
 "How is that going?" she said.
 
+I did not answer.
+
+She did not repeat the question. She did not rephrase it or soften it or offer me a way out. She just sat there, her hands folded over one knee, and waited. The building's ventilation hummed. The clock on her desk ticked. I had never noticed the clock before. I noticed it now.
+
 I looked at the parking lot through the window. A woman was loading groceries into her trunk. Normal life, twenty feet of air and one pane of glass away. I watched her close the trunk and push the cart to the corral and get into her car and drive away, and I thought about how ordinary that sequence was, how unremarkable, how I would have given anything to be a person whose biggest problem was whether to return the cart or leave it.
 
 "Not well," I said.

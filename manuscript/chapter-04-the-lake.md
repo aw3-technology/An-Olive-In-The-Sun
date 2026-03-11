@@ -153,7 +153,7 @@ A reservoir. Man-made. Some government project from the seventies, framed now by
 
 My mother is driving. I am in the passenger seat. My sister is in the back with her phone. We are twenty minutes from the venue, maybe less. I am getting married today and the road is smooth and my mother drives an automatic and no one is bleeding and I am thirty-four years old.
 
-I count the mile markers. Eleven. Twelve. Thirteen. My fingers tap the armrest in groups of four. Four taps, pause. Four taps, pause. A habit I thought I had outgrown, the way you outgrow shoes, gradually and then all at once. But the body does not outgrow anything. It only learns to hide.
+I count the mile markers. Eleven. Twelve. Thirteen. My fingers tap the armrest in groups of four. Four taps, pause. Four taps, pause. It used to be three. At fifteen, three was the number the universe required. Somewhere along the way, three stopped being enough. The body does not outgrow anything. It just revises its terms.
 
 I check the time on my phone. 10:47 a.m. The ceremony is at 2:00. That is one hundred and ninety-three minutes. I divide this by manageable intervals. Forty-eight sets of four, with one left over. The remainder bothers me. I recalculate. The math is soothing. The math is always soothing. It does not matter what the numbers mean. It matters that they hold still.
 

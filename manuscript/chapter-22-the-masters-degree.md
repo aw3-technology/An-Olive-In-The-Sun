@@ -9,9 +9,13 @@ The mirror over the sink shows me what I expected. My makeup is holding. My hair
 
 I turn on the faucet and run cold water over my wrists. The shock of it travels up my arms. I count to four. Hold. Count again.
 
-I check my hair again. Adjust a pin that does not need adjusting. I look at my face in the mirror, tilt my head, look again. No one out there is studying me the way I am studying myself. No one is cataloguing the faint crease where the concealer has settled into a line, or the way my left eye looks slightly more shadowed than my right. I know this. I know it the way I know the stove is off, the way I know the door is locked, the way I know the ceiling will not collapse. Knowing has never been the problem. My body does not trade in knowledge. It trades in repetition, in the insistence that one more check, one more look, one more count, will close the circuit and let me move on. I check again. Then I dry my wrists on the hand towel and straighten my dress and prepare to walk back out.
+I check my hair again. Adjust a pin that does not need adjusting. I look at my face in the mirror, tilt my head, look again. No one out there is studying me the way I am studying myself. No one is cataloguing the faint crease where the concealer has settled into a line, or the way my left eye looks slightly more shadowed than my right. I know this. I know it the way I know the stove is off, the way I know the door is locked, the way I know the ceiling will not collapse. Knowing has never been the problem. My body does not trade in knowledge. It trades in repetition, in the insistence that one more check, one more look, one more count, will close the circuit and let me move on. I check again. And again. The pin. The crease. The left eye. The circuit will not close. I am aware of time passing, of the reception continuing without me, of Will probably scanning the room right now and not finding me, and still I cannot leave until the face in the mirror looks correct, and the face in the mirror will never look correct because the standard is not aesthetic. It is neurological. There is no amount of adjustment that will satisfy the part of my brain that is running this program.
 
-The muscle memory of pushing through. I built it somewhere, years ago, and it has never fully left.
+Seven minutes. I have been in this bathroom for seven minutes. I know because I checked my phone when I came in and I check it again now. Three texts from Will. The last one: *You okay?* Two words. The tenderness in them lands like a weight because I am not okay, I am standing in a bathroom on my wedding night checking my hair for the sixth time, and the gap between the woman he married this afternoon and the woman in this mirror is the gap I have spent my entire life trying to close, and it does not close, it never closes, and the checking is how I pretend it might.
+
+I put the phone down. I dry my wrists on the hand towel and straighten my dress and prepare to walk back out.
+
+The muscle memory of pushing through. I built it somewhere, years ago, and it has never fully left. But each time it costs something. Tonight it costs seven minutes of my wedding. Seven minutes Will spent looking for me while I looked at myself.
 
 ---
 
@@ -33,35 +37,37 @@ Graduate school was not hard in the way I had expected it to be hard.
 
 The coursework was manageable. Education theory, curriculum design, adolescent psychology, assessment methods. I had spent years reading Hegel. I could handle Vygotsky. The papers were formulaic in a way that suited the part of my brain that craved structure: introduction, literature review, methodology, findings, discussion, conclusion. A template. I filled it in. The grades were fine.
 
-What was hard was everything surrounding the coursework. The architecture of a life that required me to be functional for sixteen hours a day, five days a week, while my brain ran its own parallel program in the background.
+What was hard was everything surrounding the coursework. The architecture of a life that required me to be functional for sixteen hours a day while my brain ran its own parallel program in the background.
 
-The mornings. The alarm at six fifteen. The medication taken with a glass of water, the pills lined up on the counter in the order my psychiatrist prescribed: the mood stabilizer first, then the anti-anxiety, then the one for the OCD that I still thought of as the one that keeps me from checking the lock fourteen times before I leave. Twenty minutes for the nausea to pass. Some mornings it didn't pass. Some mornings I threw up in the bathroom and then brushed my teeth and drove to campus with the taste of toothpaste and bile mixing at the back of my throat, and I sat in a classroom and took notes on Bloom's taxonomy while my stomach clenched and unclenched beneath my desk.
+The mornings. Alarm at six fifteen. Three pills lined up on the counter. Twenty minutes for the nausea to pass. Some mornings it didn't pass. Some mornings I drove to campus with the taste of toothpaste and bile at the back of my throat and took notes on Bloom's taxonomy while my stomach clenched beneath my desk.
 
-Thursday therapy at four o'clock. Every Thursday. I never missed it, even when the session meant arriving late to my evening seminar, even when my professor raised an eyebrow as I slipped into the back row twenty minutes in. I could not explain the absence. I could not say: I was sitting in a chair across from a woman named Dr. Reeves, telling her about the intrusive thought I had on Tuesday in the library where I imagined the bookshelves falling and crushing everyone, and we spent forty-five minutes not on the thought itself but on my shame about having it. I could not say that. So I said nothing. I was the quiet one who came in late on Thursdays, and I let the silence stand.
+Thursday therapy at four. Every Thursday. I never missed it, even when it meant arriving late to my evening seminar. I could not explain the absence. I was the quiet one who came in late on Thursdays, and I let the silence stand.
 
-The pharmacological tightrope. My psychiatrist, Dr. Chen, a small woman with a calm voice and a habit of clicking her pen against her knee while she thought. She adjusted my dosage twice during the first semester. The first adjustment made me sleepy in a way that felt geological, like the sediment of exhaustion was settling into my bones. I could not write. I sat at my laptop and stared at the cursor blinking on an empty document and the words would not come, not because I didn't have them but because the medication had put a pane of glass between me and the part of my brain where language lived. I could see the words. I could not reach them.
+My psychiatrist, Dr. Chen, adjusted my dosage twice during the first semester. The first adjustment made me sleepy in a way that felt geological. I could not write. The medication had put a pane of glass between me and the part of my brain where language lived. The second adjustment lifted the sleepiness but flattened everything. Colors were still colors. Nothing was vivid.
 
-She adjusted again. The second round was better. The sleepiness lifted. But something else arrived in its place: a flatness, a dullness, a reduction of the world's texture to something manageable but muted. Colors were still colors. Music was still music. But the quality had changed, the way a photograph looks different when you lower the contrast. Everything was present. Nothing was vivid.
-
-I told Dr. Chen. She clicked her pen. She said we could try a third option, but that it might take six weeks to know if it worked, and in the meantime I might feel worse before I felt better. I said okay. What else was I going to say. The alternative was the lock, the tiles, the 3 a.m. catastrophes, the version of my brain that ran unchecked and untreated, and I had already lived inside that brain, and I was not going back.
-
-The third medication worked. Or it worked enough. I could write again. I could feel things again, dimly, the way you feel warmth through a thick coat. The OCD was quieter. Not gone. Never gone. But quieter, like a radio turned down to a level where you could still hear it but it no longer drowned out everything else. I took this as victory. The bar had been adjusted. Victory now meant: I can function. I can sit in a classroom and think about what is being said. I can write a paper without rewriting every sentence until the letters look correct. I can sleep before two a.m. on most nights.
+She tried a third option. Six weeks to know if it worked. It worked enough. I could write again. I could feel things, dimly, the way you feel warmth through a thick coat. The OCD was quieter. Not gone. But quieter, like a radio turned down to a level where it no longer drowned out everything else.
 
 The bar was low. I stepped over it and kept walking.
 
 ---
 
-Imposter syndrome is too clean a phrase for what I felt.
+A Thursday in October. I spent forty-five minutes in Dr. Reeves' office telling her about an intrusive thought I'd had in the library the day before, a vivid image of the bookshelves collapsing and crushing the student at the next carrel. We did not talk about the thought itself. We talked about my shame at having it, which was worse.
 
-The other students in my cohort arrived with a certainty I could not locate in myself. They spoke in seminars with the easy fluency of people who had always known they belonged in rooms like this. They used phrases like "pedagogical framework" and "differentiated instruction" and "culturally responsive practice," and the words came out of their mouths fully formed, confident, the way answers come out of people who have never doubted that their answers count.
+I drove to campus with my eyes still swollen, the concealer I'd reapplied in the parking lot sitting unevenly on my skin. The seminar had started twenty minutes ago. I slipped through the back door.
 
-I listened. I took notes. I nodded at the right moments. The performance was convincing enough. No one questioned whether I belonged there. But I questioned it every day, in the quiet of my car before class, in the bathroom between sessions, in the minutes before sleep when my brain, freed from the distraction of coursework, returned to its favorite project: proving that I was a fraud.
+Dr. Gutierrez was mid-sentence. Something about scaffolding for ELL students. Fourteen heads turned. I counted them. The empty chair was in the front row. I took it.
 
-The evidence was everywhere, if you looked. The Thursday absences. The mornings I arrived late with my eyes red. The way I took twice as long on papers because the first draft was never right, and the second draft was never right, and by the third I was rewriting not for quality but for the compulsion, the need for the thing to be correct in a way that had nothing to do with academic standards and everything to do with the architecture of a brain that could not let go.
+"Glad you could join us," Dr. Gutierrez said. Not unkindly. But the attention landed like a lamp, and I could feel the room recalibrating. The one who comes in late on Thursdays.
 
-They did not know about the hospital. They did not know about the medication. They did not know that the calm, quiet woman in the back row with the neat handwriting had once counted ceiling tiles for an entire class period because she could not stop, or that she had checked her front door lock fourteen times before leaving for campus that morning, or that her greatest academic fear was not failing but being discovered.
+After class, a woman named Meredith caught up with me in the hallway. She carried a planner with color-coded tabs and the easy confidence of someone who had never doubted she belonged in rooms like this.
 
-I wanted to belong there. I did not feel I had earned the right.
+"You okay?" she asked. "You seem like you've been somewhere else lately."
+
+Her face was open, curious, not cruel. She was trying to connect.
+
+I said I was fine. I said I had a standing appointment that ran late. She nodded. She did not ask what kind. She said if I ever wanted to study together she had a whole system for the assessment methods final, and the offer was genuine. I said I'd think about it. I did not think about it. By the end of the semester she had stopped asking.
+
+This was how I maintained my distance. Politely. With a smile that said *I'm fine* and a wall behind it that said *you cannot come closer.* The same architecture I had been building since the first party, since I learned that connection was possible as long as it stayed on the surface.
 
 ---
 
@@ -113,26 +119,36 @@ He had not said anything useful. He had not fixed anything. He had just seen me,
 
 I finished the thesis in April.
 
-The last paragraph was written at my kitchen table at one in the morning with a mug of cold tea beside my laptop and the neighbor's dog barking through the wall. I typed the final sentence, read it back, changed a word, changed it back, and then sat there for a long time looking at the screen.
+The last paragraph was written at my kitchen table at one in the morning with cold tea beside my laptop and the neighbor's dog barking through the wall. I typed the final sentence, changed a word, changed it back.
 
-Seventy-eight pages. Eight months of research. A study on trauma-informed teaching practices in Title I schools. I had chosen to write about how teachers should recognize and respond to students who were carrying invisible damage, and I had written it while carrying my own invisible damage into the library every evening, taking my medication in the bathroom between sessions, performing functionality like a costume I could not take off.
+Seventy-eight pages. A study on trauma-informed teaching practices in Title I schools. I had written about how teachers should recognize students carrying invisible damage, and I had written it while carrying my own into the library every evening.
 
-The defense was in May. Three professors at a conference table. Questions I had prepared for, and a few I had not. I answered them the way I answered everything in that program: carefully, competently, with the slight delay of a person translating her thoughts through a layer of chemical moderation before they reached her mouth. They passed me. One of them shook my hand and said congratulations and I said thank you and the word felt like a stone I was holding in my palm, smooth and real and surprisingly heavy.
+The defense was in May. Three professors. They passed me. One shook my hand and said congratulations and the word felt like a stone in my palm, smooth and real and surprisingly heavy.
 
-The diploma arrived in the mail six weeks later. I hung it on the wall in my apartment, on a nail I hammered in myself, slightly crooked because the stud finder was at my mother's house and I was too impatient to drive over and get it. It hung next to nothing. No other frames, no photographs, no decoration. Just the diploma, in its dark frame, on a white wall, in an apartment that smelled like the lavender candle I kept by the window.
+The diploma arrived six weeks later. I hung it on the wall on a nail I hammered in myself, slightly crooked. It hung next to nothing. Just the diploma, in its dark frame, on a white wall, in an apartment that smelled like the lavender candle I kept by the window.
 
-I looked at it. I looked at it the way you look at a scar: with recognition, not celebration. It was proof. But proof of what? Not that I was smart. I had never doubted my intelligence. What I had doubted was my ability to sustain anything. To show up, day after day, for something that required me to function at a level my brain did not always allow. The diploma was proof that I could endure. That I could white-knuckle my way through a two-year program while managing a mood disorder and an anxiety disorder and a compulsive disorder and a weekly therapy appointment and a biweekly psychiatry appointment and a daily negotiation with the chemistry of my own skull.
+I looked at it the way you look at a scar: with recognition, not celebration. The diploma was proof that I could endure. That I could show up, day after day, for something that required me to function at a level my brain did not always allow.
 
-It was not proof that any of those things were resolved. They sat beside the diploma like uninvited guests at a dinner party, still present, still occupying space, just quieter for the moment. The degree was real. The anxiety was also real. Both hung on the wall, visible and invisible, taking up exactly the same amount of room.
+The degree was real. The anxiety was also real. Both hung on the wall, visible and invisible, taking up exactly the same amount of room.
 
 ---
 
 I straighten my dress. Smooth the fabric over my hips. Check the mirror one more time.
 
-The woman looking back is not the woman in the library carrel. She is older. Her makeup is better. She has learned to hold the smile longer, to ration her energy across the hours of a day that requires her to be present for everyone while her body quietly asks to lie down.
-
-She is also still that woman. That will always be true. The one who nearly quit. The one who stayed for no good reason. The one who wrote bad sentences in a fluorescent-lit library while the rain fell and the medication adjusted and no one in the world knew how close she came to closing the laptop and walking away.
+The woman looking back is not the woman in the library carrel. She is older. Her makeup is better. She has learned to hold the smile longer. She is also still that woman. The one who nearly quit. The one who stayed for no good reason.
 
 I unlock the bathroom door. The music and the voices flood back in.
 
-I walk out. The performance continues. I am good at this part. I have been practicing for years.
+The reception has shifted while I was gone. The caterers are clearing the dinner plates and someone has moved the centerpieces to make room for dancing. Through the tent's open side I can see the vineyard lit amber by the last sun, and closer, a cluster of guests gathered around Will's uncle, who is telling a story with his whole body the way Will's family does, hands and shoulders and eyebrows all enlisted. Children I do not recognize are chasing each other between the tables, weaving through the legs of adults who have had enough champagne to stop minding. The string lights have come on, and they throw a warm, uneven glow across everything, softening the faces, softening the room, making the whole scene look like something remembered rather than something happening.
+
+Will finds me before I find him. He appears at my elbow with a glass of water and the particular quiet attention of a man who noticed I was gone and chose not to follow.
+
+"Seven minutes," I say.
+
+He hands me the water. "I counted."
+
+I take a sip. The cold of it cuts through the champagne warmth in my chest. He does not ask if I am okay. He knows what the bathroom means. He has learned, over the course of the years, that the question is less useful than the glass of water.
+
+The DJ is setting up. The dancing is about to begin. I can feel the evening tilting toward something looser, less structured, the part of the night where people stop performing and start moving, where the careful architecture of the day gives way to something messier and more honest.
+
+I set the glass down. I smooth my dress. The performance continues, but the audience has softened, and so, for the moment, have I.

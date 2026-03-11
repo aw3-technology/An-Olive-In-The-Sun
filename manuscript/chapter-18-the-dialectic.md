@@ -19,17 +19,13 @@ He stood at the chalkboard in a classroom that smelled like dry-erase markers an
 
 I was nineteen. A Tuesday. The specific Tuesday does not matter, except that it does, because it was the day I learned a word that rearranged everything.
 
-"Hegel argues," the professor said, and already half the class was somewhere else, staring at laptops or the window or the middle distance where undergraduates go when the reading was too dense, "that history does not move forward through agreement. It moves forward through contradiction."
-
-He wrote on the board. THESIS. Then beneath it, slightly to the right, ANTITHESIS. Then beneath both, centered, SYNTHESIS.
-
-"Every idea contains the seed of its opposite," he said. "Every stability carries within it the conditions for its own undoing. And the collision between the two does not produce destruction. It produces something new."
+He wrote three words on the board. THESIS. ANTITHESIS. SYNTHESIS. Half the class was elsewhere, staring at laptops or the middle distance where undergraduates go when the reading is too dense. He said something about every stability carrying within it the conditions for its own undoing. I do not remember his exact words. I remember leaning forward.
 
 I look at my vows. The second line reads: *I come from people who loved hard and left anyway.* The ink is slightly smudged where my hand rested against the page. I should have typed them. I wanted my handwriting. I wanted the evidence of a hand that shook and kept writing.
 
 The professor paced. He paced the way all good professors pace, like the movement was part of the argument, like standing still would be a kind of intellectual dishonesty. He wore the same brown shoes every class. I noticed this the way I noticed everything that year: compulsively, as though the details were clues to a question I had not yet learned to ask.
 
-"The thesis is not wrong," he said. "It is incomplete. It sees one side of the truth and mistakes it for the whole. The antithesis is also incomplete. It sees the other side. The synthesis holds both."
+He kept going. The thesis was not wrong, just incomplete. The antithesis, also incomplete. The synthesis held both. I remember the rhythm of it more than the words.
 
 I sat in the third row, left side, near the window. I always sat near windows. Not because I wanted to look outside but because the light helped me stay in my body. Without it, I drifted. The window in that classroom faced east, and by the time the seminar met at two in the afternoon, the direct sun had passed, leaving the kind of soft, secondhand light that makes everything look slightly more honest than it is.
 
@@ -41,9 +37,7 @@ I fold the paper and unfold it. The crease is getting soft. I have folded it so 
 
 The professor drew an arrow on the board. From THESIS down to ANTITHESIS.
 
-"This is where it gets difficult," he said. He tapped the space between them. "This is the negation. The antithesis does not simply disagree with the thesis. It reveals what the thesis was hiding. It exposes the contradiction that was always already there."
-
-The contradiction that was always already there.
+"This is where it gets difficult." He tapped the space between the words. Something about negation, about the antithesis revealing what the thesis had been hiding. Then a phrase I have never let go of: the contradiction that was always already there.
 
 I remember the sentence landing in my chest the way a key lands in a lock. Not because I understood Hegel. I did not understand Hegel. I still do not understand Hegel, not really, not the way the professor did, with his library of German editions and his careful distinctions between Aufhebung and simple negation. I understood the shape of it. The architecture. The idea that something could fall apart and that the falling apart was not the end of the story but the middle.
 
@@ -71,11 +65,11 @@ I unfold the vows again. The sunlight through the bathroom window has shifted, f
 
 The professor put the chalk down.
 
-"Synthesis," he said, "is not compromise. It is not splitting the difference. It is the emergence of a new understanding that could not have existed without the conflict that preceded it."
+"Synthesis is not compromise," he said.
 
 He paused. I remember the pause because he was not a man who paused. He spoke in continuous streams, one idea feeding the next, the way a river feeds the sea, without hesitation. But he stopped. He looked at the board, at the three words in their descending triangle, and for a moment he was not a professor performing a lecture. He was a person who believed what he was saying.
 
-"The synthesis does not erase the thesis," he said. "It does not erase the antithesis. It holds them both. It says: this was true, and this was also true, and here is what I have made from the wreckage."
+He said something quieter then. That the synthesis does not erase anything. That it holds everything, the thesis and the antithesis both. I do not remember his exact phrasing. I remember the last words: here is what I have made from the wreckage.
 
 I wrote that down. I still have the notebook.
 
@@ -89,7 +83,7 @@ The honesty of that sits beside the philosophy, and neither cancels the other ou
 
 *You are the first person*, my vows say, *who made me believe that love could survive knowing the truth about me.*
 
-The sun through the bathroom window is the same sun that came through the classroom window when the professor asked us a question I have never stopped answering. He leaned against the chalkboard, arms crossed, chalk dust on his sleeve, and said: "If the dialectic is true, if progress really does require contradiction, then what does that mean for the things you have suffered? What does it mean if the worst thing that happened to you is also the condition for whatever comes next?"
+The sun through the bathroom window is the same sun that came through the classroom window when the professor asked us a question I have never stopped answering. He leaned against the chalkboard, arms crossed, chalk dust on his sleeve, and said: "What does it mean if the worst thing that happened to you is also the condition for whatever comes next?"
 
 The room was quiet. We were nineteen, twenty. We did not know what the worst thing was yet. Some of us did. I did. I sat by the window with the soft light on my notebook and I knew exactly what the worst thing was, and I knew he was right, and I hated that he was right, because it meant the pain was not pointless, which should have been a comfort and instead felt like a betrayal. If the suffering served a purpose, did that mean it was acceptable? Did it mean I should be grateful? The thought made me sick.
 

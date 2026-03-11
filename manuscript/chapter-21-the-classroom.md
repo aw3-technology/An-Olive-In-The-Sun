@@ -73,6 +73,28 @@ I stood in the empty classroom and understood, for the first time, why I was the
 
 ---
 
+Two weeks later I taught a lesson on metaphor that I had spent four hours preparing.
+
+I brought in Billy Collins and Langston Hughes and Mary Oliver. I had examples on the whiteboard, handouts with poems, a worksheet I had designed myself because the textbook's exercises were insulting. I stood in front of the room and talked about how metaphor works, how it takes one thing and holds it next to another thing and the space between them is where the meaning lives. I was animated. I was good. I could feel it, the way a musician can feel when the room is listening.
+
+No one was listening.
+
+A girl in the second row was braiding her friend's hair. Two boys near the window were passing a note. Marcus had his headphones on, which stung in a way I was not expecting. Three students were absent. The rest sat in the particular posture of adolescence that communicates, without words, the most devastating review a teacher can receive: this does not matter.
+
+I pushed through. I called on students. I asked questions. I modeled the analysis on the whiteboard with increasingly desperate precision. I could hear my own voice getting faster, tighter, the voice of a person who is losing the room and knows it and cannot stop performing long enough to figure out why.
+
+The worksheet came back mostly blank. One student had drawn a detailed sketch of a sneaker. Another had written "idk" in three separate answer boxes. Marcus's was blank except for his name at the top, written in his small careful hand, and then nothing.
+
+I sat at my desk after they left and stared at the worksheet with the sneaker on it. The sneaker was actually quite good. Detailed lacing, accurate proportions, shading on the sole. Someone had spent twenty minutes drawing it while I talked about Langston Hughes.
+
+The failure taught me something I should have known. The lesson was for me. I had designed it to prove I could teach metaphor the way my college professors taught metaphor: with rigor and beauty and intellectual respect. But my students did not need intellectual respect. They needed to recognize themselves on the page before they could analyze what the page was doing. I had brought them Billy Collins when I should have brought them lyrics they already knew. I had performed brilliance instead of building a bridge.
+
+The next week I scrapped the handouts. I put a Tupac lyric on the board and said, "Where's the metaphor?" The room went quiet for a different reason. A hand went up. Then two. Then the girl who had been braiding hair said, "That whole second verse is a metaphor," and she was right, and the conversation that followed was louder and messier and less beautiful than anything I had planned, and it was the first time the room actually moved.
+
+I learned this: the lesson that fails is the one you built for yourself.
+
+---
+
 But it was not clean. None of it was clean.
 
 There was a girl in fifth period who flinched every time a door slammed. Not a startle. A flinch. The whole body contracting, shoulders to ears, like a person bracing for impact. The first time I saw it I was closing the supply closet and the latch caught and the door banged shut and she folded into herself so fast it was as if she had rehearsed it. Which, of course, she had. You do not learn to flinch like that without practice.
@@ -117,7 +139,7 @@ I wrote angry emails I did not send. I attended meetings where I said too much. 
 
 In the spring, I won the Outstanding Student Teacher award.
 
-I stood in a ballroom at the district office in a dress I had bought at the same thrift store where I found the blazer. The superintendent said my name and people clapped and I walked to the podium and accepted a plaque that was heavier than it looked, and I said something about the students, because that is what you say, and I meant it, and I drove home afterward and put the plaque on my desk and sat beside it and felt two things at once.
+I stood in a ballroom at the district office in a dress I had bought at the same thrift store where I found the blazer. The superintendent said my name and people clapped and I walked to the podium and accepted a plaque that was heavier than it looked, and I said something about the students, because that is what you say, and I meant it, and I drove home afterward and put the plaque on my desk and sat beside it. Proud. And alone.
 
 Pride. Real, uncomplicated pride. The kind I had not felt in years, maybe ever. The recognition arriving not as a surprise but as a confirmation: this is what you are for. You were built for this room. Every broken thing in your history gave you the eyes to see the broken things in theirs. Every kitchen table, every hospital, every night spent counting tiles on the ceiling made you the person who could look at Marcus and say, "I see you." That is not nothing. That is, in fact, the thing.
 

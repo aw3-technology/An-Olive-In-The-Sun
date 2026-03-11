@@ -19,7 +19,7 @@ Then she clears her throat.
 
 She puts the paper down on the table. She picks up the champagne glass. She puts it back down without drinking.
 
-"Olivia," she says, and her voice breaks on the second syllable, the i splitting open like a seam, and I feel it in my chest before I understand what I am feeling. The sound of my own name in my mother's breaking voice. The sound of a woman who has spent thirty years holding everything together allowing one small thing to come apart.
+"Olivia," she says, and her voice breaks on the second syllable, and I feel it in my chest before I understand what I am feeling.
 
 The tears arrive without permission. I do not wipe them away. For the first time all day, I let them come.
 
@@ -81,7 +81,7 @@ She does not say what things. She does not mention the hospital. She does not me
 
 A murmur from the room. Nods. Glasses lifted slightly, the champagne catching the light.
 
-She does not mention Mark. But I hear him. I hear him the way you hear a note that has stopped sounding, in the resonance, in the air that the vibration left behind. She says "resilient" and I hear the word she cannot say, the name she cannot speak in a room full of people who are here to celebrate survival. The absence of his name is louder than anything she says.
+She does not mention Mark.
 
 ---
 
@@ -175,15 +175,19 @@ She did her best. It wasn't enough, and it was everything.
 
 My mother looks at me across the table. Her eyes are wet.
 
-"I am so proud of you," she says, and her voice splinters on the last word, the d dissolving into breath, and the room makes a sound that is not applause, not yet, but something softer. A collective exhale. The sound of a hundred people allowing a woman to be imperfect in front of them.
+"I am so proud of you," she says. Her voice breaks on the last word. The room is quiet.
 
-She turns to Will. She says something about being grateful, about trust, about knowing her daughter is loved. The words are ordinary. They are the words every mother says at every wedding, the liturgy of maternal blessing, and they are not enough and they are too much and they are exactly what she is capable of and I would not change a single one.
+She turns to Will. She says something about being grateful, about trust, about knowing her daughter is loved. The words are ordinary. Every mother's words. I would not change one.
 
-She does not mention Mark by name. She says "everything our family has been through" and the room hears strength, resilience, the vague adversity that makes a good wedding speech, and I hear the apartment with the beige walls and the soup on the stove and the television turned low and the name we did not say. I hear the parking lot where she sat in her car before walking into the hospital where her daughter was wearing a paper gown. I hear the silence on the phone the night her boss was sentenced, the flatness in her voice when she said she needed to update her resume, the decades of surface that held because the alternative was a collapse she could not afford.
+She says "everything our family has been through" and the room hears strength, resilience, the vague adversity that makes a good wedding speech. I hear the apartment with the beige walls. The soup on the stove. The television turned low. The name we did not say.
 
 She sits down.
 
 The room applauds. Glasses are raised. Champagne is sipped. Someone at the far table says something to someone else and laughter ripples outward and the reception resumes its rhythm, the noise filling the space her voice left behind.
+
+The caterers bring the main course. Plates set down in front of us with quiet precision: roasted chicken with the skin crisped and blistered, lemon halves charred black at the edges, a salad of arugula and shaved fennel dressed in olive oil that catches the string light in a thin gold film. I chose this menu. Not the caterer, not a coordinator. I sat at my kitchen counter six months ago with a binder of options and I chose this: the chicken because my grandmother cooked it every Monday, the lemon because I learned to cook with it alone in my apartment, the oil because it is the thing that nourishes when nothing else will. No one at these tables knows this. They will eat and compliment and move on. But I know what is on the plate and where it came from, and for a moment the meal holds everything the toast could not say.
+
+The oil is green-gold on the arugula. The same color as the pan on a Tuesday night. The same color as bread in Barcelona.
 
 Under the table, my mother reaches for my hand.
 

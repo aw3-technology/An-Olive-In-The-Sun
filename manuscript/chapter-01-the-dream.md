@@ -119,7 +119,7 @@ My phone lights up. Messages from friends, bridesmaids, distant relatives alread
 
 It looks beautiful in the way wedding spaces always look beautiful before people arrive to fill them with their histories.
 
-Another message, from Will, sent at 6:14 a.m.: *Still here. Still showing up. Coffee's on me after.*
+Another message, from Will, sent at 6:14 a.m.: *Couldn't sleep. There's a rooster on the next property that has opinions about the morning. Saved you the good coffee. The fog is doing something out here you'd like.*
 
 I read it twice. Three times.
 
@@ -127,7 +127,7 @@ In my family, marriage has always functioned less as a destination and more as a
 
 Which is why the dream did not feel strange. It felt logical. He would not show up. The story would end the same way all the others had.
 
-But he texted at 6:14 in the morning. Before the sun was fully up. *Still here.*
+But he texted at 6:14 in the morning. Before the sun was fully up. Already awake, already outside, watching the fog for me because he knew I would want to see it.
 
 A knock sounds gently on the door.
 

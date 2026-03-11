@@ -93,6 +93,8 @@ He had spent years in therapy learning to sit with discomfort instead of reactin
 
 The difference between then and now: the first time, we fell. Two people leaping off a cliff together and calling the free fall love. This time, we walked. Eyes open. Feet on the ground. Aware of every stone, every ridge, every place where the path narrowed and the drop appeared. We walked it anyway. Not because we were brave. Because we were finally old enough to know the difference between bravery and recklessness.
 
+The first time I visited his apartment, I stood in the doorway and could not breathe. Not because of him. Because of the room. In the corner of his office, a guitar leaned against the wall beside a monitor and a tangle of cables. He had taught himself to code, he told me later, built the firm's project management tools from scratch, the same dogged self-instruction I remembered from college, the chord book and the thrift-store acoustic and the jaw set against failure. He wrote software the way he played guitar: alone, at night, with a persistence that was either discipline or compulsion. Standing in that doorway, I saw another apartment. Another man who kept instruments and screens in the same room, who lived inside his work like a monk inside a cell. The parallel was so precise it made my teeth ache. But Will looked up from the screen and said, "The kitchen's a mess. I was going to warn you but I figured you'd find out eventually." And I laughed, and the parallel cracked open, because my father had never once been embarrassed about anything in front of me, and Will was standing there with a sheepish expression and mismatched socks, and the door behind him was open.
+
 ---
 
 There is a night I return to.
@@ -133,11 +135,21 @@ His face, which is the one thing in this room I do not need to count. He is look
 
 I unfold the paper. My hands are shaking. The words I wrote at my kitchen counter three weeks ago, cross-legged on the floor because the chair felt too formal for this, reading them aloud to no one, rewriting them twice, three times, knowing they would never be sufficient and writing them anyway.
 
-I do not promise forever. I come from a family where forever is a five-year word, a forty-year word, a word that means until someone stops trying. I do not promise perfection or certainty or the absence of fear. I promise today. I promise to choose him tomorrow, and the day after, and to keep choosing until one of us stops being brave enough to stay. I promise to let him see me counting, to let him into the machinery I have spent a lifetime hiding. I promise to try. Not to be fixed. Just to keep trying.
+"I do not promise forever," I say. My voice is thin in the open air. "I come from a family where forever is a five-year word. A forty-year word. A word that means until someone stops trying."
+
+I look at him. He is watching my face, not the paper.
+
+"I do not promise perfection or certainty or the absence of fear. I promise today. I promise to choose you tomorrow, and the day after, and to keep choosing until one of us stops being brave enough to stay."
 
 My voice breaks once. On the word "choosing." I let it break. I do not correct it.
 
-He reads his vows. His voice is steady, the way his hands are steady, the way his buildings are steady, the way everything about him is steady now in a manner that the boy I loved at nineteen would not recognize. He speaks simply. He does not quote poetry or philosophy or make promises that sound like screenplays. He says he will show up. He says he will stay. He says he knows that staying is not a single decision but a daily one, and he is willing to make it every morning, even the mornings when it is hard, especially those mornings.
+"I promise to let you see me counting. To let you into the machinery I have spent my whole life hiding." I fold the paper. "I promise to try. Not to be fixed. Just to keep trying."
+
+He reads his. His voice is steady, the way his hands are steady, the way his buildings are steady. He does not quote poetry or philosophy or make promises that sound like screenplays.
+
+"I will show up," he says. "Every morning. Even the mornings when it is hard. Especially those."
+
+He says he knows that staying is not a single decision but a daily one, and he is willing to make it with ordinary hands, on purpose, every time.
 
 I listen. I am surprised to find that I believe him. Not the way I believed things at nineteen, desperately and completely, the way you believe a fire will keep you warm without considering what it will burn. I believe him the way I believe the floor beneath my feet. Quietly. With evidence. With the fourteen years of distance that taught me what his absence felt like and the two years of return that taught me what his presence meant.
 

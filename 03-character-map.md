@@ -230,7 +230,7 @@
 **Dialogue texture:** Direct, spare, occasionally surprising. Says less than he means. Representative lines:
 - "You don't have to explain it. I was there." (When she tries to apologize for college)
 - "I'm not going anywhere. But I need you to believe that because you see it, not because I keep saying it."
-- Morning of the wedding, his text to her: "Still here. Still showing up. Coffee's on me after."
+- Morning of the wedding, his text to her: "Couldn't sleep. There's a rooster on the next property that has opinions about the morning. Saved you the good coffee. The fog is doing something out here you'd like."
 
 **Relationship with Olivia:**
 - First relationship in college: intense, chaotic, traumatic. Two people who loved each other in a way that was real but unsustainable. They were too young, too broken, too unaware of their own patterns.

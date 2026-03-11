@@ -27,20 +27,18 @@ But I also know what I did not receive. No one in my family ever sat down and sa
 
 No one named the line.
 
-I am naming it now.
+I am naming it now. Or trying to. Sitting in the dark in a hotel room on my wedding night, I am trying to trace the shape of the thing I carry, and I cannot see it whole. I can feel the current. I can feel the pills on the nightstand and the therapist's card in my wallet and the man breathing in the other room who stayed. I can feel the choices I have made, lined up beside the choices I inherited, and I cannot tell you where one set ends and the other begins. I do not know if naming the line breaks it. I do not know if choosing differently is enough to change the architecture, or if the wire runs too deep, woven into the nervous system, the chemistry, the marrow. I do not know if this marriage will hold. I do not know if I will be the kind of mother, if I become one, who sits down at the kitchen table and says the true thing, or if I will discover, when the moment arrives, that silence is easier than I thought and my mother's face is waiting for me in the mirror.
 
-If I have a daughter someday, I want her to know this. Not as a warning. Not as a burden. As a clearing. A place where the trees have been cut back and the light comes through.
+I do not know.
 
-I want her to know that difficulty is not destiny. That the soil you are born into does not determine the shape of what you become. That asking for help is not a failure of strength but the beginning of it.
+I chose this anyway. I am choosing it now, in the dark, with the fear still humming and the counting still ticking and no guarantee that the pattern ends with me. I chose it not because I solved the question but because I finally understood that the question does not have a solution. It has a practice. A daily, ordinary, uncinematic practice of waking up and choosing again.
 
-That love can be chosen rather than inherited. That you do not have to wait for someone to hand you the model for how to live. That the model is yours to build, from the fragments, from the ruins, from whatever materials are available.
+Outside the window, the first light is coming. Not yet sunrise. Just the earliest suggestion of it, the sky shifting from black to a deep, uncertain blue, the kind of light that is not quite anything yet. Not day. Not night. Something between.
 
-That an olive tree does not grow despite the sun. It grows because of it.
-
-I sit in the dark hotel room and listen to my husband breathe. Outside the window, the first light is coming. Not yet sunrise. Just the earliest suggestion of it, the sky shifting from black to a deep, uncertain blue, the kind of light that is not quite anything yet, that is still deciding what it wants to become.
-
-Northern California in October. The same sun that opened this day. The same sun that opened this book.
+Northern California in October. The same sun that woke me fourteen hours ago. The same sun that will ask the same question tomorrow.
 
 I stand up. I walk to the window and I open the curtains.
 
-The light finds me. I let it.
+The light finds me. I do not know what it will show.
+
+I let it.
