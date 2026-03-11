@@ -15,9 +15,7 @@ The photographer takes the shot.
 
 The groomsman's hand lifts away.
 
-I exhale.
-
----
+I exhale. The relief is automatic, muscular, older than this room. Older than this dress. As old as a plaid skirt and a backpack and an afternoon in October when the eucalyptus smelled like rain.
 
 I was fourteen the first time a man on the street told me what my body was for.
 

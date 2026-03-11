@@ -29,7 +29,7 @@ I walk back to the chair. The ranunculus has shifted. I straighten it. Press the
 
 The first time Mark didn't come home, I was twelve.
 
-It was a Thursday. I know this because my mother had made the chicken she only made on Thursdays, the one with the cream of mushroom soup poured over it from a can, the recipe she'd clipped from a magazine and taped to the inside of a cabinet door. The kitchen smelled like condensed soup and overcooked rice. My sister was doing homework at the kitchen table. I was reading on the couch, or pretending to. The book was something about horses. I had started wearing my hair in a braid every day that year, pulled so tight it left a red line along my forehead by evening. I thought it made me look older. It made me look like a girl trying very hard to hold something in place.
+It was a Thursday. I know this because my mother had made the chicken she only made on Thursdays, the one with the cream of mushroom soup poured over it from a can, the recipe she'd clipped from a magazine and taped to the inside of a cabinet door. The kitchen smelled like condensed soup and overcooked rice. My sister was doing homework at the kitchen table. I was reading on the couch, or pretending to. The book was something about horses. A girl and a wild pony on an island, the pony terrified of being touched, the girl learning to stand still and wait until the animal came to her. I had read it three times already. I liked the logic of it, the idea that trust was something earned through patience rather than demanded through force. Horses only came to you if you proved you could hold still. I had started wearing my hair in a braid every day that year, pulled so tight it left a red line along my forehead by evening. I thought it made me look older. It made me look like a girl trying very hard to hold something in place.
 
 The chicken grew cold on the stove. My mother set the table for four, then stood at the kitchen counter with her hands on the edge of it, staring out the window above the sink. The sky went dark. She did not turn on the porch light.
 
@@ -63,11 +63,11 @@ Mark's drinking had been part of him for as long as I'd known him. The boat, the
 
 And there were other things. Things I didn't have words for then and am careful with now.
 
-His moods swung wider. Days when he was up, manic, full of plans, his eyes too bright, his gestures too large for the room. My mother would smile and say, "That sounds great, honey," in the careful voice of a woman who has learned that enthusiasm, in this house, is just the other side of disaster.
+His moods swung wider. The blue periods came first, days when the light in the house seemed to thin, as if someone had adjusted the filter over the whole sky. Then the manic swings. Days when he was up, full of plans, his eyes too bright, his gestures too large for the room. My mother would smile and say, "That sounds great, honey," in the careful voice of a woman who has learned that enthusiasm, in this house, is just the other side of disaster.
 
 Then the crashes. Days when he did not come out of the bedroom. The door closed, the blinds drawn, the television murmuring at a volume too low to hear but too present to ignore. My sister and I moved through the house like we were walking on a frozen lake, testing each step before committing our weight.
 
-I started picking my outfits the night before. Laying them out on my desk chair with the shoes underneath, everything decided and arranged before I went to sleep. A plaid skirt and white button-down for school. My denim jacket with the enamel pins on the collar if it was cold. The braid, always the braid. If I could control what I looked like when I left the house, then at least one thing about my morning would be predictable.
+I started picking my outfits the night before. Laying them out on my desk chair with the shoes underneath, everything decided and arranged before I went to sleep. A plaid skirt and white button-down for school. My denim jacket with the enamel pins on the collar if it was cold. The braid, always the braid. Each piece selected with a precision that had nothing to do with vanity and everything to do with architecture. If I could control what I looked like when I left the house, then at least one thing about my morning would be predictable. The outfit was a blueprint for a self that could walk through the door intact. A girl in a plaid skirt is a girl with a plan. A girl with a plan is a girl who might survive the day.
 
 ---
 

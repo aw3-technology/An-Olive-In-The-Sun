@@ -35,6 +35,8 @@ Two bedrooms. A living room with a keyboard against the wall and a bass guitar o
 
 A room that was also his office. A bed that was also a couch. A space that said: you are welcome here, and I love you, and I do not know how to build a room that is only yours.
 
+Once, I was nine, and I sat on the futon watching him code. Two monitors, lines of text I couldn't read. He noticed me and pulled a chair beside his. "Want to see something?" He pointed at a line on the screen and explained what it did, something about a booking database he was building for a promoter. His voice lost the dreamy quality it usually carried. He became sharp, specific. He drew a diagram on the back of an envelope and used the word "elegant" about a function he'd written, the same word he used about chord progressions. For twenty minutes I sat there understanding nothing and felt, for the only time I can remember, his full attention. Not the searchlight sweeping past. The beam itself. Then his phone rang. But I kept the envelope for years, long past when the diagram meant anything, because the handwriting was his and it was proof he could hold something precisely, when he chose to.
+
 I press my cheek against his shoulder and the fabric of the new suit smells like dry cleaning and something underneath, cedar maybe, or the particular warm smell that has always been his, that I could identify blind, that lives in some animal part of my memory below language or reason.
 
 ---
@@ -135,7 +137,17 @@ He loved me. He loves me still. I can hear it in the tremor and in the late birt
 
 I watch him walk to the bar. He orders something, leans his elbow on the wood, turns three-quarters toward a guest he does not know. He is already talking. Already filling the silence with something easier than the thing he just left on the dance floor. The posture is different from my grandfather's, less practiced, less smooth. But the instinct is the same. Turn toward the room. Away from the feeling.
 
-The DJ puts on something faster. Guests move toward the floor. My sister catches my eye from across the room and raises her glass, and in her face I see the same complicated knowledge, the same calculus we have both been running since childhood. She still calls him every week. She sends birthday cards. She maintains the connection I let go slack, and I do not know whether this makes her stronger than me or simply unable to stop trying. Both, probably.
+The DJ puts on something faster. Guests move toward the floor. My sister catches my eye from across the room and raises her glass. Then she crosses to me. I think she is going to say something practical, something about the timeline, the next event. Instead she stands beside me and watches our father at the bar, and her face does the thing it did in the bathroom this morning with the mascara wand. The brief opening. The door she does not mean to show.
+
+"He cried," she says. "During the dance. Did you see?"
+
+"I felt it."
+
+She is quiet for a moment. Then, so quietly I almost miss it: "He never cried for us."
+
+The sentence sits between us. She does not take it back. She does not soften it or deflect it or reach for a joke. She lets it stay. And I realize the crack from this morning did not close. It widened. She is standing here beside me with the same bitten nails and the same concealer and the same composure, and underneath all of it, a door she is deciding, slowly, whether to leave open.
+
+She still calls him every week. She sends birthday cards. She maintains the connection I let go slack, and I do not know whether this makes her stronger than me or simply unable to stop trying. Both, probably.
 
 I turn toward the tables. Will is sitting at ours, his jacket over the back of his chair, his sleeves rolled to the elbows. He watches me cross the room the way he watches everything: calmly, completely, without looking away. He does not fill rooms. He does not perform. He just stays.
 

@@ -75,6 +75,8 @@ She showed me freedom. That a woman could live without the script and be magnifi
 
 She did not show me how to stay when it got hard. Two lines of text from Lisbon, a week after she left. I wanted to want her kind of freedom. But I could not live without being needed, and the neediness, which I spent years being ashamed of, turned out to be the thing that kept me reaching for people instead of running from them.
 
+A woman I do not recognize is standing near the garden entrance with a camera. Someone's plus-one. She has cropped dark hair and she lifts the lens to her eye with the unselfconscious focus of a person who sees the world in frames. For a fraction of a second, in the purple light, she could be anyone. The click of the shutter reaches me across the room, a small, precise sound, and my chest tightens once, involuntarily, the way a healed bone aches before a storm. Then the woman lowers the camera and turns and she is a stranger again, someone else's guest at someone else's table, and the ache subsides into the place where I keep the things Barcelona taught me.
+
 Philosophy showed me how to think about suffering without drowning in it. It gave me a language for the fact that a person can love you and leave you and the leaving does not cancel the love. It did not show me how to feel. The thinking was a tool, not a cure. I spent a semester learning to diagram pain. It made me articulate. It did not make me well.
 
 Fashion showed me how to construct a self. In a life where I controlled so little, I could control the hem and the color and the angle of the collar. The modeling world corrupted the impulse. But the original was mine.
@@ -83,9 +85,9 @@ Teaching showed me purpose. The students who arrived carrying histories shaped l
 
 Jess is on the dance floor, her hem already coming undone, laughing at something one of the groomsmen said. Rachel is at a table near the edge, her posture careful, her wine barely touched, watching the room with the quiet attention of a woman who has spent her whole life showing up for people she does not entirely understand.
 
-They showed me that friendship can be real and incomplete at the same time. That you can love someone who holds only a piece of your story and never give them the rest, and the love is not diminished by the withholding, just shaped by it. Jess does not know about the hospital. Rachel does not know about the counting. Neither of them has the full picture. No one does. I have distributed myself across the people in my life the way a river distributes itself across a delta, each channel carrying a portion of the water, none carrying the whole.
+They showed me that friendship can be real and incomplete at the same time. Jess does not know about the hospital. Rachel does not know about the counting. No one has the full picture. I have distributed myself across the people in my life the way a river distributes itself across a delta, each channel carrying a portion of the water, none carrying the whole.
 
-I used to think this was a failure. A symptom of the fracture, the instability, the fact that I never stayed in one place long enough to let someone see all of me. Tonight, standing here, I am not sure it is a failure at all. It might just be how I learned to survive. And surviving is not nothing.
+I used to think this was a failure. Tonight I am not sure. It might just be how I learned to survive. And surviving is not nothing.
 
 My mother at her table. Endurance.
 My father across the room. Creativity.

@@ -185,6 +185,18 @@ She sits down.
 
 The room applauds. Glasses are raised. Champagne is sipped. Someone at the far table says something to someone else and laughter ripples outward and the reception resumes its rhythm, the noise filling the space her voice left behind.
 
+But before the table pulls her back, there is a moment. Half a second. I catch it because I have spent my life catching things my mother does not mean to show.
+
+She looks at the empty chair by the wall.
+
+Her face, in that half-second, is a face I have never seen. Not composed. Not held together. Not the careful surface she has maintained for thirty years. Something raw moves through it, fast as a cloud shadow crossing a field. Her mouth opens and her chin trembles once, just once, and in that single tremor I see the entire weight of it. Not grief, exactly. Or not only grief. Something larger. The accumulated cost of every Sunday chicken and every silence and every morning she got up and went to work and never told anyone what it took.
+
+Then someone at the table speaks to her and her face recomposes itself, smooth and immediate, like water closing over a stone. She turns. She smiles. She is herself again.
+
+But I saw it. The face she wears when no one is looking. The most honest thing she has ever shown me.
+
+I look across the room while the applause fades and notice, for the first time all day, what people have chosen to wear. My grandmother in her navy dress and pearl brooch, the same uniform of occasion she has worn for decades, each piece selected for propriety rather than pleasure. My grandfather at the bar in a suit that fits like it was tailored yesterday, because it was. Jess in a green silk that keeps slipping off one shoulder, because Jess has never believed in clothes that stay where you put them. Rachel in something structured and black, buttoned to the throat, the wardrobe of a woman who has decided that being taken seriously is a garment you put on every morning. My sister in lavender, a color I have never seen her wear, soft against her skin, and the surprise of it moves something in my chest I cannot name. Everyone in this room has constructed a version of themselves for tonight. The fabric is the first sentence of a story they are telling without speaking. I have been reading these sentences since I was thirteen years old, laying out my school clothes the night before, and the reading has never stopped.
+
 The caterers bring the main course. Plates set down in front of us with quiet precision: roasted chicken with the skin crisped and blistered, lemon halves charred black at the edges, a salad of arugula and shaved fennel dressed in olive oil that catches the string light in a thin gold film. I chose this menu. Not the caterer, not a coordinator. I sat at my kitchen counter six months ago with a binder of options and I chose this: the chicken because my grandmother cooked it every Monday, the lemon because I learned to cook with it alone in my apartment, the oil because it is the thing that nourishes when nothing else will. No one at these tables knows this. They will eat and compliment and move on. But I know what is on the plate and where it came from, and for a moment the meal holds everything the toast could not say.
 
 The oil is green-gold on the arugula. The same color as the pan on a Tuesday night. The same color as bread in Barcelona.

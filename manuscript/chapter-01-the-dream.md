@@ -83,7 +83,7 @@ They both loved us very much.
 
 At five years old I did not understand the mechanics of any of this. I did not understand legal separation or custody arrangements or the quiet negotiations adults conduct when something breaks. What I understood was the feeling that something stable had suddenly shifted beneath us, like the ground itself had moved and no one would admit it.
 
-My sister started crying almost immediately. Loud, uncontrolled sobs that filled the kitchen and bounced off the tile floor.
+My sister started crying almost immediately, her small fists pulling at the hem of her pink T-shirt. Loud, uncontrolled sobs that filled the kitchen and bounced off the tile floor.
 
 I did not cry.
 

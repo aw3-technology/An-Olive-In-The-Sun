@@ -5,7 +5,7 @@ I step outside and the air changes everything.
 
 The reception is behind me now, its noise muffled by the heavy wooden door I pull shut with both hands. Music, laughter, the clink of glasses, the low roar of a hundred people performing happiness or maybe, for some of them, simply being happy. I cannot tell the difference tonight. I am not sure there is one.
 
-The terrace is empty. Stone underfoot, still warm from the day. A barn owl sits on the ridge beam of the old stone barn at the edge of the property, its pale face turned toward the vineyard, perfectly still. It has been there since dusk. I saw it arrive while the toasts were winding down, a white shape gliding low over the vines without a sound, settling on the beam next to the broken weathervane as though it had been expected. Beyond the barn, the hillside drops away in long golden folds toward the valley, and the light is amber at the horizon, cooling to violet overhead, and the hills are lit from the side in a way that makes every ridge and furrow visible.
+The terrace is empty. Stone underfoot, still warm from the day. A thin film of condensation has gathered on the stone railing where a glass was left, the water catching the last light in a line so fine it looks drawn. A barn owl sits on the ridge beam of the old stone barn at the edge of the property, its pale face turned toward the vineyard, perfectly still. It has been there since dusk. I saw it arrive while the toasts were winding down, a white shape gliding low over the vines without a sound, settling on the beam next to the broken weathervane as though it had been expected. Beyond the barn, the hillside drops away in long golden folds toward the valley, and the light is amber at the horizon, cooling to violet overhead, and the hills are lit from the side in a way that makes every ridge and furrow visible.
 
 I breathe.
 
@@ -67,7 +67,7 @@ I look at the tree one more time. Its twisted trunk. Its stubborn branches. The 
 
 An olive in the sun.
 
-I turn around. The door to the reception hall glows warm from the inside, light spilling through the glass in a long rectangle across the stone terrace. I can see shapes moving behind it. People dancing. My people. The fragments of a life assembled in one room, imperfect and incomplete and, tonight, enough.
+I turn around. The door to the reception hall glows warm from the inside, light spilling through the glass in a long rectangle across the stone terrace. And there, in the glass, my reflection. A woman in a white dress with a wine stain near the hem, standing next to an olive tree in the last light. I look at her the way I have looked at myself in mirrors since I was a girl in a hotel bathroom on the morning of her wedding, since I was a teenager in front of a closet constructing a person from fabric, since I was a patient in a hospital gown learning that everything she had built could be folded into a plastic bag. The woman in the glass is all of those women. She does not look away. I can see shapes moving behind her. People dancing. My people. The fragments of a life assembled in one room, imperfect and incomplete and, tonight, enough.
 
 The music is playing. Something slow. Something I chose months ago and have been hearing all day as though for the first time.
 

@@ -15,9 +15,7 @@ Seven minutes. I have been in this bathroom for seven minutes. I know because I 
 
 I put the phone down. I dry my wrists on the hand towel and straighten my dress and prepare to walk back out.
 
-The muscle memory of pushing through. I built it somewhere, years ago, and it has never fully left. But each time it costs something. Tonight it costs seven minutes of my wedding. Seven minutes Will spent looking for me while I looked at myself.
-
----
+The muscle memory of pushing through. I built it somewhere, years ago, and it has never fully left. I built it in a library and a parking lot and a classroom where no one knew what I was carrying. I built it standing at a mailbox in sweatpants I had been wearing for three days, reading a letter that said congratulations.
 
 The acceptance letter arrived on a Thursday in March, and I read it standing at the mailbox in a pair of sweatpants I had been wearing for three days.
 

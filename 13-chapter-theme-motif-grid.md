@@ -68,17 +68,17 @@
 
 | Ch. | Title | Themes | Motifs | Arc Stage |
 |-----|-------|--------|--------|-----------|
-| 1 | The Dream | T1, T7, T12 | M2, M6, M7, M13 | 1. Fear |
+| 1 | The Dream | T1, T7, T12 | M2, M6, M7, M13, M14 | 1. Fear |
 | 2 | The Dress | T2, T4, T13 | M3, M6, M7 | 2. Recognition |
 | 3 | The Sister | T2, T10 | M6, M7 | 2. Recognition |
-| 4 | The Lake | T10, T13 | M2, M4 | 2. Recognition |
+| 4 | The Lake | T10, T13 | M2, M4, M14 | 2. Recognition |
 | 5 | The Go-Kart | T4, T13 | M3 | 2. Recognition |
-| 6 | The Empty Chair | T3, T4 | M3, M12 | 2. Recognition |
+| 6 | The Empty Chair | T3, T4, T8 | M3, M6, M7, M10, M12, M14 | 2. Recognition |
 
-**Observations:**
-- T1 (generational patterns) appears in Ch. 1 only, then doesn't return until Ch. 13. Consider a subtle echo in Ch. 2 or 3 (mother repeating her own mother's patterns?).
-- M7 (mirrors) appears three times in the first three chapters, then vanishes for nine chapters. Distribute one appearance to Part II.
-- M12 (empty chairs) appears in Ch. 6 and should recur at least twice more before Ch. 27. Consider a brief echo in Ch. 12 (grandfather's loneliness) or Ch. 16 (Mark's absence in a different context).
+**Notes:**
+- Ch. 1 M14: Pink T-shirt on sister in divorce flashback; pale blue napkins in wedding setting.
+- Ch. 4 M14: Blue (the lake, danger).
+- Ch. 6 T8: Clothing as architecture and armor (lines 70, 94, 106---"getting dressed was not vanity. It was architecture."). M10: Horse book expanded---girl and a wild pony, trust earned through patience. M7: Mirror (line 94, getting ready for the movie outing). M14: Blue (Mark's blue periods).
 
 ---
 
