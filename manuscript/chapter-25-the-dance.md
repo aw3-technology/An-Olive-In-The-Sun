@@ -113,7 +113,7 @@ I catch it.
 
 He nods. He lets go of my hand. He straightens his tie again, the same nervous adjustment from when he walked in, and steps back, and the space between us opens up the way it has always opened up, gradually, without a single identifiable moment of departure, the way shorelines erode and phone calls end and custody schedules dissolve into "when it works out."
 
-But something is different tonight. The space does not hurt the way it used to. Or it hurts differently. A cleaner pain, with less infection in it. The ache of something understood rather than something endured.
+But something is different tonight. The space does not hurt the way it used to. Or it hurts differently. A cleaner pain, with less infection in it.
 
 I watch him walk to the bar. He orders something, leans his elbow on the wood, turns three-quarters toward a guest he does not know. He is already talking. Already filling the silence with something easier than the thing he just left on the dance floor. The posture is different from my grandfather's, less practiced, less smooth. But the instinct is the same. Turn toward the room. Away from the feeling.
 
