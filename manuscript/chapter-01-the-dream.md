@@ -125,34 +125,6 @@ Which is why the dream did not feel strange. It felt logical. He would not show 
 
 But he texted at 6:14 in the morning. Before the sun was fully up. Already awake, already outside, watching the fog for me because he knew I would want to see it.
 
-A knock sounds gently on the door.
-
-I look at the clock. 8:12.
-
-My sister is early.
-
-I open the door to find her standing in the hallway holding two coffee cups and wearing a loose gray sweater, her hair still damp from the shower.
-
-"You look like you didn't sleep," she says.
-
-"I had a dream."
-
-"Bad one?"
-
-I step aside to let her in. "The wedding started. And he never showed up."
-
-She hands me the coffee. "Classic anxiety dream."
-
-I take a sip. The warmth spreads slowly through my chest.
-
-For a moment neither of us speaks.
-
-Then she looks across the room toward the dress.
-
-"Well," she says quietly, "today's the day."
-
-I follow her gaze.
-
 The sunlight has fully entered the room now, stretching across the floor and climbing slowly up the wall where the dress hangs. White lace. Bright morning light.
 
 And somewhere beneath the nervous dread of the morning, beneath the memories and half-formed fears, there is something I cannot yet name. Not hope, exactly. Something smaller. Something still deciding what it wants to become.

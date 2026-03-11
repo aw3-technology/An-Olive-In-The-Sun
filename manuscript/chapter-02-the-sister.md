@@ -1,4 +1,4 @@
-# Chapter 3
+# Chapter 2
 ## The Sister
 
 My sister arrives carrying a black nylon case the size of a small suitcase and two iced coffees sweating through their paper sleeves. She sets everything on the bathroom counter without asking where it should go. She already knows.

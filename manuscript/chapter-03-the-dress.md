@@ -1,11 +1,11 @@
-# Chapter 2
+# Chapter 3
 ## The Dress
 
 A knock at the door, soft and precise. The way she knocks at work, I imagine. The way she has trained herself to enter rooms without startling anyone.
 
 My mother stands in the hallway holding two coffees and a garment bag folded over her forearm like a waiter's towel. She is already dressed. Charcoal sheath, low heels, pearl earrings that belonged to her mother. Her makeup is flawless. She has been awake for hours. I can tell because the coffee she hands me is lukewarm, which means she bought it on the way to calm herself down and then sat in her car in the parking lot, drinking her own, working through whatever she needed to work through before she could walk in here and be the mother of the bride.
 
-"You look beautiful," she says, even though I am wearing a hotel robe and my hair is still wet.
+"You look beautiful," she says, even though I am wearing a hotel robe.
 
 I step aside to let her in. She moves through the room the way she moves through everything: efficiently, scanning for what needs to be done. She spots the wedding dress on the closet door and crosses to it without pausing, unzipping the garment bag she brought and laying out the undergarments, the shoes, the slim packet of safety pins she packed in case something tore. She has thought of everything. She always thinks of everything.
 
