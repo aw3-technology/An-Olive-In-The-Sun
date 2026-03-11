@@ -2,6 +2,18 @@
 
 ## Detailed Chapter Outlines
 
+### GUIDING PRINCIPLES FOR ALL CHAPTERS
+
+**Central question:** Every chapter must move Olivia toward answering: *Am I destined to repeat the broken relationships of my family?* See `02-chapter-outline.md` for each chapter's specific central question movement.
+
+**Emotional restraint:** The worse the event, the simpler the prose. Let facts carry weight. Resist amplifying language, retrospective explanation, and adjectives that tell the reader how to feel. Show the events. Trust the reader.
+
+**Tone balance:** Every part of the book needs moments of humor, beauty, and quiet peace alongside the difficult material. No section should be tonally uniform. Dark chapters need oxygen. Light chapters need undercurrent.
+
+**Narrative discipline:** Every scene must earn its place by advancing the emotional arc, revealing character, deepening a generational pattern, or moving Olivia toward the central question. If a scene is merely interesting, cut it.
+
+**Philosophy:** Keep Hegel personal. If a philosophical passage would feel out of place spoken on a kitchen floor at 2 a.m., it's too abstract. Olivia should sometimes catch herself mid-framework and deflate it.
+
 ---
 
 ## PART I --- MORNING
@@ -40,6 +52,8 @@
 
 **THEMES:** Generational patterns, fear of repetition, choosing love despite fear
 **MOTIFS:** Sunlight, mirrors, doors/thresholds (dress on the closet door), hands (arranging objects --- OCD control). Film: Lion King (loss of a father). Color: pink (childhood)
+**CRAFT NOTE:** This chapter establishes the voice for the entire book. The reader will decide within the first two pages whether to trust Olivia. Emotional restraint is critical: the divorce scene should be rendered in concrete detail (the kitchen table, the sunlight, the sister crying), not explained or emotionally amplified. A moment of humor or beauty (the vineyard, the absurdity of the nightmare) prevents the opening from feeling heavy. The Hegel introduction should be brief, personal, and slightly self-deprecating.
+
 **KEY LINE TERRITORY:** Something about how divorce taught her that love has an expiration date---she just never learned how to read the label.
 
 ---
@@ -142,6 +156,8 @@
 
 **THEMES:** Chaos, adults as unreliable, the body as site of trauma, premature responsibility
 **MOTIFS:** Hands (on a steering wheel), sunlight (on surfaces that hide danger). Secondary: water, blood. Film: Beauty and the Beast (loving something dangerous). Color: blue (the lake, danger)
+**CRAFT NOTE:** This is the first major set piece. Emotional restraint is paramount: the blood, the steering wheel, the highway should be rendered flatly, almost clinically. Olivia at eleven does not have the vocabulary for melodrama. The power comes from the gap between what is happening and the flatness with which she describes it. The darkest line should be the simplest.
+
 **KEY LINE TERRITORY:** Something about how she learned to drive before she learned to trust.
 
 ---
@@ -427,6 +443,8 @@
 - **Ch 17** (The Jesuits) carries intellectual joy alongside doubt: the thrill of a mind waking up.
 These are the oxygen that makes the darkness survivable for the reader.
 
+**Critical tone balance:** This is the section most at risk of exhausting the reader. Six chapters of collapse, grief, and reckoning. Without counterweight, the book becomes emotionally overwhelming. The breathers (Ch 13, beauty in Ch 14, intellectual joy in Ch 17) are not optional flourishes; they are structural necessities. Even in the darkest chapters (15, 16), a single moment of quiet beauty or dry humor can prevent the reader from disengaging. Trust that the dark material is powerful enough; it does not need the prose to be dark too.
+
 ---
 
 ### Chapter 13 --- The Good Marriage
@@ -531,6 +549,8 @@ These are the oxygen that makes the darkness survivable for the reader.
 
 **THEMES:** Mental health, the body as site of trauma, naming and diagnosis, treatment and recovery, the nadir
 **MOTIFS:** Sunlight (fluorescent vs. natural), mirrors, doors/thresholds. Phones: Instagram (the gap between the grid and the ward). Film: Black Swan (beauty that eats you alive). Color: blue (institutional walls)
+**CRAFT NOTE:** The emotional nadir. Restraint matters most here. The paper gown, the first pill, the fluorescent light. Do not reach for lyrical anguish. The most devastating line in this chapter should be a simple declarative sentence. Let the reader supply the emotion. Avoid any language that sentimentalizes or dramatizes the hospital experience. The power is in the clinical flatness.
+
 **KEY LINE TERRITORY:** Something about how she spent most of her twenties trying to outrun something she couldn't name, and by the time she stopped running, she was standing in a hospital room being told the name had been there all along.
 
 ---
@@ -564,6 +584,8 @@ These are the oxygen that makes the darkness survivable for the reader.
 
 **THEMES:** Grief, suicide, shame, silence, family collapse and survival
 **MOTIFS:** Alcohol (Mark's addiction arc). Secondary: empty chairs, silence. Film: Requiem for a Dream (collapse fulfilled). Color: blue (the color of an empty room)
+**CRAFT NOTE:** The chapter the entire book has been building toward. Maximum restraint. The reveal should land not through dramatic prose but through the accumulated weight of fifteen chapters of circling. The simplest possible language. No metaphor, no philosophy, no intellectualizing. Just what happened. The silence *after* the revelation is as important as the revelation itself. Give the reader space.
+
 **KEY LINE TERRITORY:** Something about how suicide doesn't end a conversation---it starts one that no one in the family knows how to have.
 
 ---
@@ -596,6 +618,8 @@ These are the oxygen that makes the darkness survivable for the reader.
 
 **THEMES:** Tradition vs. lived experience, philosophy as framework and defense, faith and doubt, adults as unreliable narrators (the Jesuits' intellectual openness within rigid limits)
 **MOTIFS:** Doors/thresholds (entering the university), mirrors (philosophical self-reflection). Film: Frozen (letting go of the good-girl performance)
+**CRAFT NOTE:** This chapter carries intellectual joy. Let the discovery be genuinely exciting. Olivia's mind waking up in a philosophy class should feel as vivid as any physical event in the book. But ground every idea in the body: the classroom, the professor's chalk-dusted hands, the light through the window. And include at least one moment where Olivia deflates her own intellectualizing: "I could diagram my entire childhood on a chalkboard, and it would still hurt exactly the same."
+
 **KEY LINE TERRITORY:** Something about how the Jesuits taught her to question everything except the one thing she most needed to question---whether thinking about pain was the same as surviving it.
 
 ---
@@ -632,6 +656,8 @@ These are the oxygen that makes the darkness survivable for the reader.
 
 **THEMES:** Philosophy as framework, resilience and becoming, choosing love despite fear
 **MOTIFS:** Mirrors (self-reflection through philosophy)
+**CRAFT NOTE:** The blended timeline is the most formally ambitious structure in the book. The vow-writing and the Hegel lecture should speak to each other organically. Ground every philosophical idea in the act of writing the vows: the pen on the page, the specific words she chooses. Include a moment of self-interrogation: is she finding genuine meaning, or a prettier frame for the same mess? The tension between the framework helping and the framework dodging should be visible to the reader without being stated.
+
 **KEY LINE TERRITORY:** The professor said history moved forward through contradiction. Through struggle. Olivia remembers thinking that if that was true, her life was practically a masterpiece.
 
 ---
@@ -959,6 +985,8 @@ These are the oxygen that makes the darkness survivable for the reader.
 
 **THEMES:** Fragmented role models (resolution), integration, identity construction, becoming
 **MOTIFS:** All primary motifs converge briefly: olives, sunlight, music, hands, mirrors, clothing, doors/thresholds. Color: purple (twilight, integration)
+**CRAFT NOTE:** The thematic climax. This chapter answers the central question: she is not destined to repeat. She assembled her own model from fragments. The emotion should come from specificity, not declaration. One concrete detail about each person (the grandmother adjusting a tie, the father picking at guitar strings, Nadia's camera) is worth more than a paragraph of reflection. Resist the urge to over-explain the synthesis. Let the reader assemble it alongside Olivia.
+
 **KEY LINE TERRITORY:** "No one showed me exactly how to live. That part was mine to invent."
 
 ---
@@ -992,6 +1020,8 @@ These are the oxygen that makes the darkness survivable for the reader.
 
 **THEMES:** Resilience and becoming, choosing love despite fear, the olive metaphor (resolution)
 **MOTIFS:** Olives (full arrival), sunlight (final image), doors/thresholds (walking back inside), music. Color: purple (sunset, transformation complete)
+**CRAFT NOTE:** The final chapter. The simplest prose in the book. No philosophy, no intellectualizing, no flashback. Just Olivia standing in the light. The olive metaphor should land because the reader has been unconsciously absorbing olive imagery for twenty-six chapters. The best line in the book should be the simplest. Do not over-explain. Do not sentimentalize. Let the image do the work.
+
 **KEY LINE TERRITORY:** The title metaphor, stated directly for the first and only time. An olive in the sun. She is the olive.
 
 ---

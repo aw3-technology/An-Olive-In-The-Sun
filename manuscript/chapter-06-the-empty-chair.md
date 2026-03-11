@@ -11,7 +11,7 @@ The coordinator finds me before I've taken three steps away. She is young, blond
 
 "The florist sent white roses for the aisle arrangements," she says. Her voice is measured, professional, calibrated to suggest this is a minor inconvenience. "Instead of the ranunculus."
 
-White roses. Not what I ordered. Not even close. Ranunculus have a softness to them, a layered quality, like something still in the process of opening. White roses are what you send to a funeral. The tightening begins in my chest before I can stop it, a fist closing around something I cannot reach. Wrong flowers. Wrong flowers on the wrong day and the whole architecture of this afternoon suddenly feels like it could come apart at the seams if even one more thing shifts out of place.
+White roses. Not what I ordered. Not even close. Ranunculus have a softness to them, a layered quality, like something still in the process of opening. White roses are what you send to a funeral. The tightening begins in my chest before I can stop it, a fist closing around something I cannot reach. Wrong flowers. Wrong flowers on the wrong day and the whole architecture of this afternoon suddenly feels like a house built on a question no one has answered yet.
 
 I pull out my phone. Start typing a message to the florist. Delete it. Start again. Delete it again. The letters are too sharp or too polite or not the right combination of both and I am standing in the October sunlight trying to compose a text about flowers while something much larger presses against the back of my throat.
 
@@ -63,9 +63,9 @@ Mark's drinking had been part of him for as long as I'd known him. The boat, the
 
 And there were other things. Things I didn't have words for then and am careful with now.
 
-His moods swung wider. Days when he was up, manic, full of plans. He would come into the kitchen talking about a business he was going to start, a trip he was going to take us on, a car he was going to buy. His eyes too bright, his gestures too large for the room. My mother would smile and say, "That sounds great, honey," in the careful voice of a woman who has learned that enthusiasm, in this house, is just the other side of disaster.
+His moods swung wider. Days when he was up, manic, full of plans, his eyes too bright, his gestures too large for the room. My mother would smile and say, "That sounds great, honey," in the careful voice of a woman who has learned that enthusiasm, in this house, is just the other side of disaster.
 
-Then the crashes. Days when he did not come out of the bedroom. The door closed, the blinds drawn, the television murmuring at a volume too low to hear but too present to ignore. My mother brought him plates of food that came back untouched. My sister and I moved through the house like we were walking on a frozen lake, testing each step before committing our weight.
+Then the crashes. Days when he did not come out of the bedroom. The door closed, the blinds drawn, the television murmuring at a volume too low to hear but too present to ignore. My sister and I moved through the house like we were walking on a frozen lake, testing each step before committing our weight.
 
 I started picking my outfits the night before. Laying them out on my desk chair with the shoes underneath, everything decided and arranged before I went to sleep. A plaid skirt and white button-down for school. My denim jacket with the enamel pins on the collar if it was cold. The braid, always the braid. If I could control what I looked like when I left the house, then at least one thing about my morning would be predictable.
 
@@ -113,11 +113,9 @@ Thanksgiving arrived and Mark sat at the table and carved the turkey and told a 
 
 His hands shook when he carved. Not dramatically. Just enough that the knife slipped twice and he laughed both times and said, "Turkey's fighting back." My mother took the knife from him gently, finished the carving herself, and no one acknowledged the transfer. The unspoken choreography of managing someone. How you learn to step in without making it visible, to correct without confronting, to hold the whole production together with invisible thread.
 
-Christmas was worse. Mark gave us gifts that made no sense. A fishing rod for my sister, who had never fished. A set of oil paints for me, still in the plastic wrap, clearly purchased in haste from a store he had wandered into without a list. The gifts of a man who had remembered the obligation but forgotten the people. My mother smiled and said they were lovely. My sister said thank you. I held the oil paints and stared at the plastic and thought about the gap on the shelf where the wine glass used to be.
+After Christmas he was gone for four days. My mother told the neighbors he was visiting his brother in Sacramento. His brother lived in Portland. The lie was not for them. It was for herself, for us, for the version of the family she was still trying to maintain through sheer narrative willpower.
 
-After Christmas he was gone for four days. My mother told the neighbors he was visiting his brother in Sacramento. His brother lived in Portland. I do not think the neighbors believed her. I do not think she cared if they did. The lie was not for them. It was for herself, for us, for the version of the family she was still trying to maintain through sheer narrative willpower.
-
-When he came back, he smelled like a bar. Not a specific bar. Like the concept of one. Like the inside of a place designed for people who do not want to go home.
+When he came back, he smelled like the concept of a bar. The inside of a place designed for people who do not want to go home.
 
 ---
 
@@ -146,8 +144,6 @@ We said these things to each other and to ourselves and to the neighbors and to 
 And the truth, which we all knew and none of us said, was that Mark was disappearing.
 
 Not all at once. Not the way people disappear in movies, dramatically, with a door slamming or a car peeling out of a driveway. He disappeared the way a photograph fades if you leave it in the sun. Slowly. In degrees. The color draining out of him until what remained was the outline of a person, still present, still occupying space, but no longer fully there.
-
-His laughter thinned. His stories got shorter. The manic plans stopped. The crashes got longer. He sat in the living room and stared at the television without watching it, and I would pass through the room and glance at him and feel something cold move through my chest, a draft from a door I could not find.
 
 I was thirteen years old, and I knew something terrible was coming the way you know a storm is coming. Not because anyone told you. Because the air changes.
 

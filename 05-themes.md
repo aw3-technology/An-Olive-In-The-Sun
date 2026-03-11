@@ -2,6 +2,17 @@
 
 ## Theme Document
 
+### THE CENTRAL QUESTION
+
+**Am I destined to repeat the broken relationships of my family?**
+
+This is the single question that drives the entire novel. Every theme below is a facet of this question. Every chapter must move Olivia closer to answering it. When writing or revising a chapter, ask two questions:
+
+1. **Which theme does this chapter serve?**
+2. **How does this chapter move Olivia toward answering the central question?**
+
+If a chapter cannot answer both, it needs to be reworked or cut. The wedding becomes the moment of decision: not a fairy tale ending, but a conscious act of choosing differently, with full knowledge of what she comes from.
+
 *Each chapter should express at least one of these themes. When writing a chapter, ask: which theme does this chapter serve?*
 
 ---
@@ -14,6 +25,8 @@ The book's central tension. Three generations of broken marriages:
 - Olivia: standing at the altar, wondering if she is next
 
 **Key question:** Is divorce hereditary? Can a family pattern be broken by one person choosing differently?
+
+**Connection to central question:** This *is* the central question in its most direct form. Every appearance of this theme should feel like the question being asked again from a new angle.
 
 **Where it appears:** The Dream (Ch. 1), The Good Marriage (Ch. 13), The Boyfriend (Ch. 19), Fourteen Years (Ch. 20), the wedding ceremony itself
 
@@ -47,6 +60,8 @@ No single adult in Olivia's life provided a complete model for how to live. Each
 
 Olivia must assemble her own identity from these incomplete pieces---both masculine and feminine models.
 
+**Connection to central question:** If no one modeled a lasting relationship, how can Olivia build one? The answer the book arrives at: she doesn't need a perfect model. She has fragments. The act of assembly is itself the break from the pattern.
+
 **Key realization:** "No one showed me exactly how to live. That part was mine to invent."
 
 **Where it appears:** Throughout, but especially The Sister (Ch. 3), Mr. Burlingame (Ch. 12), The Good Marriage (Ch. 13), Barcelona (Ch. 14), The Dance (Ch. 25), The Fragments (Ch. 26)
@@ -70,6 +85,8 @@ Examples:
 
 This theme is what distinguishes the book from other memoirs about difficult childhoods. Most memoirs frame adults as either villains or heroes. Olivia's insight is more unsettling: most adults are performing competence. They are making it up as they go and hoping no one notices. This realization is both liberating (she doesn't have to have it figured out either) and terrifying (no one is steering the ship).
 
+**Connection to central question:** If every adult was faking stability, then stability itself may be a performance. Olivia's fear isn't just that love will fail; it's that she can't trust anyone's apparent success. Breaking the cycle requires accepting that no one has it figured out, and choosing to try anyway.
+
 **Key question:** If every adult in your life was improvising, what does it mean to become one yourself?
 
 **Where it appears:** The Dress (Ch. 2---mother's public composure vs. private collapse), The Lake (Ch. 4---Mark as responsible adult, shattered), The Go-Kart (Ch. 5---dysfunction normalized), The Empty Chair (Ch. 6---the family's vocabulary of denial), The Uniform (Ch. 7---Catholic school's moral authority), Hollywood (Ch. 10---glamour as facade), Mr. Burlingame (Ch. 12---grandfather's performed ease), The Good Marriage (Ch. 13---grandparents' stability questioned), The Hospital (Ch. 15---clinical authority with its own limits), The Jesuits (Ch. 17---institutional boundaries), The Toast (Ch. 24---mother's boss exposed), The Fragments (Ch. 26---seeing all of them clearly)
@@ -92,6 +109,8 @@ And what it feels like to treat:
 
 These are not separate from the story---they are the texture of Olivia's daily experience. The book must not skip from diagnosis to functioning. The messy middle---the medication adjustments, the bad therapy sessions, the grocery shopping while medicated---is the story.
 
+**Connection to central question:** Mental illness is one of the patterns Olivia may pass on. But treatment, diagnosis, and honest reckoning are the tools that make breaking the cycle possible. Her mother endured without naming. Olivia names, treats, and manages. That difference is the break.
+
 **Where it appears:** The Hospital (Ch. 15---diagnosis and beginning of treatment), The Master's Degree (Ch. 22---medication management and therapy during grad school), The Party (Ch. 9), woven into the wedding-day present timeline (she took her medication this morning; anxiety, OCD tendencies)
 
 ---
@@ -105,6 +124,8 @@ Olivia uses substances to quiet the noise:
 - The temporary relief and the morning-after regret
 
 This mirrors her family's relationship with alcohol (mother's side, grandfather, Mark). She is repeating patterns even while trying to escape them.
+
+**Connection to central question:** Self-medication is the pattern being repeated in real time. Olivia drinks to cope, just like her mother, her grandfather, Mark. Recognizing this inheritance is one of the book's pivotal moments: you cannot break a cycle you haven't identified.
 
 **Key tension:** Escape provides relief but perpetuates the cycle.
 
@@ -120,6 +141,8 @@ Olivia has a female partner in Barcelona, but this is not a plot detail---it is 
 - Queerness connects to the book's larger questions about conformity vs. lived experience. Olivia is already someone who does not fit the script she was given. Her sexuality is another way the script fails her.
 - In the modeling/Hollywood world, queerness is either fetishized or invisible. In Catholic school and Jesuit college, it is unspoken.
 - Olivia does not arrive at a neat identity label. Her sexuality, like everything else, is something she assembles from experience rather than inheriting from a model.
+
+**Connection to central question:** Queerness is another axis on which the inherited script fails. The family models of marriage are all heteronormative. Olivia's sexuality means she was never going to fit the existing templates anyway. This frees her and terrifies her: if there is no model, she must build from scratch.
 
 **Key tension:** Queerness is not her central struggle, but ignoring it would be dishonest. It is one more way she learned that the life she was "supposed" to live was not the life she was actually living.
 
@@ -156,7 +179,11 @@ Olivia discovers philosophy (especially Hegel) as a way to make sense of sufferi
 
 Philosophy gives her language for what she has experienced. But it also becomes a defense mechanism: thinking instead of feeling.
 
+**Connection to central question:** Philosophy gives Olivia the framework to believe that patterns can be transcended (the dialectic). But it also becomes a way to avoid the raw emotional work of actually doing so. The central question cannot be answered by thinking alone. It must be answered by acting: standing at the altar, saying the vows, choosing.
+
 **Key tension:** Understanding trauma intellectually is not the same as healing from it emotionally.
+
+**Critical craft note:** Philosophy must always appear as personal insight, never as lecture. If a Hegel passage becomes abstract or academic, it has failed. The test: could Olivia say this while sitting on a kitchen floor at 2 a.m.? If not, rewrite it.
 
 **Self-awareness requirement:** Olivia should sometimes doubt whether philosophy is actually helping her or just giving her a more articulate way to avoid feeling things. She should catch herself using Hegel the way other people use horoscopes---finding patterns that confirm what she already believes. The reader should sense that philosophy is both genuinely useful and occasionally a sophisticated dodge. Moments of self-correction: "I could frame this as a dialectic, but maybe it's just sad." The philosophy should earn its place in each scene by being tested against lived experience, not presented as self-evidently profound.
 
@@ -232,6 +259,8 @@ The olive metaphor carries this:
 - Yet they endure and produce something valuable
 
 Olivia's life was not shaped by one clear model. It grew in many directions. She learned to shape it herself.
+
+**Connection to central question:** This is the answer. Olivia's resilience is the proof that patterns can be broken, not through dramatic reinvention, but through the daily work of showing up honestly.
 
 **Key realization:** "Patterns aren't destiny. They're just stories waiting to be interrupted."
 

@@ -63,7 +63,7 @@ He came home two days later. Bailed out by someone, a friend or a cousin, one of
 
 "You should have seen their faces," he said. Grinning. Genuinely proud.
 
-And this is the part I cannot explain to people who did not grow up in a house like mine. He was funny. He was genuinely, disarmingly, irresistibly funny. He told the story of the go-kart like it was the greatest adventure of his life, and for a few minutes in our living room, it was. He did the voices. He described the trucker who honked at him, the officer who couldn't keep a straight face, the booking sergeant who asked him to repeat the vehicle description three times because he thought Mark was joking. He told it like a man who had lived a great story and couldn't wait to share it.
+And this is the part I cannot explain to people who did not grow up in a house like mine. He was funny. He was genuinely, disarmingly, irresistibly funny. He told the story of the go-kart like it was the greatest adventure of his life, and for a few minutes in our living room, it was. He did the voices. He described the officer who couldn't keep a straight face, the booking sergeant who asked him to repeat the vehicle description three times because he thought Mark was joking. He told it like a man who had lived a great story and couldn't wait to share it.
 
 My sister laughed until she cried. My mother shook her head and said, "You're unbelievable." But she was smiling. Even she was smiling.
 
@@ -77,9 +77,7 @@ Nobody asked if we were okay.
 
 Nobody asked my mother if she needed help, or if maybe a man who steals a child's go-kart and drives it drunk onto a freeway might not be someone you want living in a house with two young girls. The story was too entertaining. It sanded down the edges of what was actually happening. By the time it made it around the neighborhood, it was a comedy, not a cry for help.
 
-This is how dysfunction gets narrated. The dangerous thing happens. Then the dangerous thing becomes a story. Then the story gets told enough times that it starts to sound like something that happened to someone else, in a family that was wilder or funnier or more interesting than yours, in a life where recklessness was a personality trait and not a symptom.
-
-My mother told the go-kart story for years. She told it at Thanksgiving. She told it to coworkers. She told it with a shake of her head and a half-smile that said, *Can you believe it?* And people laughed, and she laughed, and somewhere inside the laughter was everything she could not say. That she was afraid. That she was exhausted. That the man she had chosen after my father, the man she had traded one broken home for, was not wild or eccentric or charmingly unpredictable. He was sick. And she did not have the language for that yet, so she used the only word she had.
+My mother told the go-kart story for years. She told it at Thanksgiving. She told it to coworkers. She told it with a shake of her head and a half-smile that said, *Can you believe it?* And people laughed, and she laughed, and somewhere inside the laughter was everything she could not say.
 
 Episode.
 

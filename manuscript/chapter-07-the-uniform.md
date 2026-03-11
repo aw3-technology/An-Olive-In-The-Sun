@@ -29,7 +29,7 @@ The school sat on a hill above a parking lot shaded by live oaks, a two-story st
 
 There is a particular freedom in being told what to wear. You wake up and the question is already answered. The plaid skirt, the white shirt, the cardigan. You look like everyone else. For a girl who spent most of her time scanning rooms for danger, reading faces for the first sign of collapse, the sameness was a kind of rest. I could stop performing. I could just be a girl in a uniform, indistinguishable from forty other girls in the same uniform, and the anonymity was the closest thing to safety I had ever known.
 
-I found Megan first. Or she found me. It is hard to remember the mechanics of early friendship because it happens the way weather happens: gradually, and then all at once, and by the time you notice, you are already inside it.
+I found Megan first. Or she found me. It is hard to remember the mechanics of early friendship because it happens the way weather happens: you do not notice the temperature changing until you are already inside it.
 
 Megan Callahan sat behind me in Sister Mary Catherine's religion class and passed me a note during a lecture on the Beatitudes that said, in round, careful handwriting: *Is it just me or does Sister MC look exactly like a parrot?*
 
@@ -39,7 +39,7 @@ I turned around and Megan was already grinning, and I knew. The way you know at 
 
 Caroline came next, pulled into our orbit by proximity and a shared lunch period. She was quieter than Megan, more watchful. She carried a worn copy of *The Perks of Being a Wallflower* in her backpack for the entire first semester, its spine so cracked the pages were starting to separate. She read it the way other girls read Scripture. I understood that impulse. Some books are not books. They are mirrors shaped like paper.
 
-By October the three of us were inseparable in the way that only teenage girls can be inseparable: violently, desperately, as if the friendship itself were a country we had founded and would defend with our lives. We ate lunch together on the bench near the chapel garden, trading halves of sandwiches and complaining about the same teachers with the reverence of soldiers cursing their commanding officers. We passed notes folded into elaborate origami shapes, triangles and stars and once a tiny paper crane that Megan made during a study hall on the Eucharist. We had a language. Not a code, exactly. A frequency. Inside jokes that had compressed over so many repetitions they were now single words, sounds, a raised eyebrow that could contain an entire conversation.
+By October the three of us were inseparable in the way that only teenage girls can be inseparable, as if the friendship itself were a country we had founded and would defend with our lives. We ate lunch together on the bench near the chapel garden, trading halves of sandwiches and complaining about the same teachers with the reverence of soldiers cursing their commanding officers. We passed notes folded into elaborate origami shapes, triangles and stars and once a tiny paper crane that Megan made during a study hall on the Eucharist. We had a language. Not a code, exactly. A frequency. Inside jokes that had compressed over so many repetitions they were now single words, sounds, a raised eyebrow that could contain an entire conversation.
 
 "Parrot" meant Sister Mary Catherine was watching.
 

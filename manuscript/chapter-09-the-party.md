@@ -35,9 +35,9 @@ I did not know the word for any of this. I did not know that what I was doing ha
 
 I thought about it the way I would later think about Hegel. A private system, hermetically sealed, that made perfect sense from the inside and looked like madness from the outside.
 
-The mornings were the worst. The alarm. The lock. The ceiling tiles. The letters. The night was the worst. The clock. The jaw. The images I could not stop. The afternoons were the worst. All of it was the worst. That is the texture of OCD at fifteen: there is no relief, only the brief pause between one compulsion completing and the next one beginning, a rest that lasts exactly long enough to remind you of what rest used to feel like.
+All of it was the worst. That is the texture of OCD at fifteen: there is no relief, only the brief pause between one compulsion completing and the next one beginning, a rest that lasts exactly long enough to remind you of what rest used to feel like.
 
-I was so tired. Not the kind of tired that sleep fixes. The kind that lives in the bones, in the muscles behind the eyes, in the particular heaviness of a body carrying a mind that never stops. I went to school. I came home. I checked the lock. I counted the tiles. I lay in the dark running through disasters. I got up. I did it again. The exhaustion was so total it became invisible, like a sound so constant you stop hearing it.
+I was so tired. Not the kind of tired that sleep fixes. The kind that lives in the bones, in the muscles behind the eyes. I went to school. I came home. I checked the lock. I counted the tiles. I lay in the dark. I got up. I did it again.
 
 I did not know there was a word for it. I did not know there was a way out.
 
@@ -69,7 +69,7 @@ I have tried to explain this to people who do not have OCD, and the explanation 
 
 You would drink too.
 
-The second beer tasted better than the first. By the third, the world had softened at its edges, the way a photograph blurs when you pull the lens out of focus, and the blur was beautiful. The music was no longer sound but texture, something I could lean into. The people around me became less threatening, their faces less detailed, their judgments less precise. The girl with the eyeliner, the Converse, the careful outfit, she loosened. She laughed at a joke she would normally have analyzed for hidden meaning. She leaned against a wall and talked to a boy whose name she would not remember tomorrow and did not care, because caring was a function of the machine that had finally, mercifully, gone to sleep.
+The second beer tasted better than the first. By the third, the world had softened at its edges, the way a photograph blurs when you pull the lens out of focus, and the blur was beautiful. The music was no longer sound but texture, something I could lean into. The people around me became less threatening, their faces less detailed, their judgments less precise. The girl with the eyeliner, the Converse, the careful outfit, she loosened. She laughed at a joke she would normally have analyzed for hidden meaning. She leaned against a wall and talked to a boy whose name she would not remember tomorrow and did not care.
 
 The anxiety did not disappear. It receded. Like a tide pulling back from the shore, exposing sand that had been underwater for years. I could see the ground. I could stand on it. I could breathe.
 
@@ -85,7 +85,7 @@ I put the cup down. Then I picked it up again. Because what else was I going to 
 
 The friendships I made at parties were real in the way fireworks are real: bright, vivid, gone by morning. Girls I hugged in bathrooms and told I loved. Boys I kissed against fences and forgot. Conversations that felt profound at midnight and evaporated with the hangover. We did not know each other. We knew the versions of each other that only existed between eleven p.m. and two a.m., in dark rooms, with the music doing most of the emotional work. By Monday those people passed me in the hallway and we nodded, and the nod was an agreement: what happened at the party was a separate life. A parallel self. We did not owe that self anything in daylight.
 
-I learned to be social without being known. The skill would follow me into adulthood, would shape every friendship I made for the next fifteen years, would put me in wedding dresses watching three women laugh together, each of them holding a piece of me that the others had never seen. The compartmentalization started in those kitchens, in those backyards, in those bedrooms where I danced with strangers and told them things I would never say sober and woke up the next morning and checked the lock three times and went back to being the quiet girl with the neat handwriting and the faint gray smudge on every page.
+I learned to be social without being known. The skill would follow me into adulthood, would shape every friendship I made for the next fifteen years, would put me in wedding dresses watching three women laugh together, each of them holding a piece of me that the others had never seen. The compartmentalization started in those kitchens, in those backyards, in those bedrooms where I danced with strangers and told them things I would never say sober and woke up the next morning and went back to being the quiet girl with the neat handwriting.
 
 The parties taught me that connection was possible. They did not teach me that it could last.
 

@@ -11,9 +11,7 @@ Mark was already drinking in the truck.
 
 Not obviously. Not falling-down. Just a tall can of Coors wedged between his thighs, condensation dripping onto the vinyl seat, his left hand loose on the wheel while his right hand tilted the can to his mouth at stoplights. My mother did not say anything. She had stopped saying anything about the drinking by then, or maybe she had never started. It is hard to know, looking back, which silences were strategic and which were simply exhaustion.
 
-He was her second chance. That was the architecture of it. She had left my father, or my father had left her, or they had left each other in the slow, mutual way people sometimes do, like two boats drifting apart on the same current. And then Mark appeared. Tall, broad-shouldered, confident in the way of men who have never been asked to question anything about themselves. He laughed loudly and drove fast and had opinions about everything. He was the opposite of my father, which I think was the point.
-
-My mother must have believed he was the answer to a question my father had failed to resolve. A man who showed up. A man who was present, physically, emphatically present, taking up space in rooms, filling silences with his voice, his plans, his restless energy. She could not have known that presence and stability are not the same thing. Or maybe she knew and chose him anyway. I have never been sure which possibility is worse.
+He was her second chance. She had left my father, or my father had left her, or they had left each other in the slow, mutual way people sometimes do. And then Mark appeared. Tall, broad-shouldered, confident in the way of men who have never been asked to question anything about themselves. He laughed loudly and drove fast and had opinions about everything. He was the opposite of my father, which I think was the point.
 
 The lake that day was beautiful. I have to say that. Whatever came after, the morning itself was beautiful. The water was so still it looked solid, like you could walk across it. Dragonflies stitched the air above the surface. My sister lay on the dock reading a magazine, her legs dangling over the edge, her toes just touching the water. My mother sat in a folding chair under a eucalyptus tree with her book and her sunglasses, looking, from a distance, like a woman on vacation. Like a woman whose life was going well.
 
@@ -103,7 +101,7 @@ I let the clutch out too fast. The truck lurched forward and stalled. Mark made 
 
 The second time, I got it. The truck crept forward across the gravel lot, and I turned the wheel toward the road, and the tires found the asphalt, and then we were moving.
 
-The road from the reservoir to the nearest hospital was fourteen miles. I know this because I have looked it up since. At the time it felt like a hundred. Two lanes, no shoulder, dry golden hills on either side, the occasional oak tree throwing a shadow across the road like a hand reaching out and pulling back. I drove with both hands gripping the wheel at ten and two the way they teach you in driver's ed, which I would not take for another five years. My knuckles were white. The sun was directly ahead of us, low enough to make me squint but not low enough to block. The windshield was filthy, streaked with dust and the dried remains of insects, and the light came through it diffused and golden, almost pretty, which felt obscene.
+The road from the reservoir to the nearest hospital was fourteen miles. I know this because I have looked it up since. At the time it felt like a hundred. Two lanes, no shoulder, dry golden hills on either side, the occasional oak tree throwing a shadow across the road. I drove with both hands gripping the wheel at ten and two the way they teach you in driver's ed, which I would not take for another five years. My knuckles were white. The sun was directly ahead of us, low enough to make me squint but not low enough to block. The windshield was filthy, streaked with dust and the dried remains of insects, and the light came through it diffused and golden, almost pretty, which felt obscene.
 
 Mark told me when to shift. Second gear at twenty. Third at thirty. I never made it past third. Thirty miles an hour felt like flying. The truck drifted toward the center line and I corrected, overcorrected, felt the gravel on the shoulder bite under the right tires and pulled back. My heart was in my throat. My jaw ached from clenching.
 
@@ -161,7 +159,7 @@ I check the time on my phone. 10:47 a.m. The ceremony is at 2:00. That is one hu
 
 A photo arrives from Will. His shoes, polished, dark brown, sitting neatly beside his suit on a hotel bed. *Ready when you are.*
 
-I stare at the photo. The shoes placed carefully, toes pointing the same direction. The suit laid flat without a wrinkle. The quiet order of a man preparing to wait for someone. The thought of it, of someone choosing to wait, not trapped in a passenger seat with a towel pressed to his hand but choosing, standing still of his own volition because he wants to be there when I arrive, still feels foreign. Like a language I am learning late. Like something I believe in theory but have not yet memorized in my body.
+I stare at the photo. The shoes placed carefully, toes pointing the same direction. The suit laid flat without a wrinkle. The quiet order of a man preparing to wait for someone. The thought of it, of someone choosing to wait, still feels foreign. Like a language I am learning late.
 
 The lake disappears behind a hill.
 

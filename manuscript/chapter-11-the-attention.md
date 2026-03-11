@@ -61,7 +61,7 @@ There is a second consciousness that women develop. I don't know what else to ca
 
 The program booted up when I was fourteen and it has never shut down.
 
-I was already wired for it. The anxiety, the OCD, the compulsive scanning of every room for what could go wrong. Before any man ever looked at me, I was already taking inventory: who is here, what might happen, where is the nearest way out. My brain arrived in the world primed for surveillance. It was built to anticipate catastrophe in empty rooms, in quiet hallways, in the middle of the night when nothing was actually wrong. And then the world looked at me and said: good, you'll need that. And it gave me reason after reason after reason, until I could no longer tell the difference between the anxiety I was born with and the vigilance I was taught.
+I was already wired for it. The anxiety, the OCD, the compulsive scanning of every room for what could go wrong. Before any man ever looked at me, I was already taking inventory: who is here, what might happen, where is the nearest way out. My brain arrived in the world primed for surveillance. And then the world looked at me and said: good, you'll need that. And it gave me reason after reason after reason, until I could no longer tell the difference between the anxiety I was born with and the vigilance I was taught.
 
 There is a broader pattern, and it moves like a tide. At nine, I was looked at. Boys on the playground who said things I did not yet understand, comments about my body that I absorbed without context, the way children absorb everything, silently, recording. At fourteen, I was appraised. The truck. The catcalls. The slow education in what it meant to have a body that other people felt entitled to narrate. At twenty-one, I was cornered. The photographer. The producer. The man at the party. The progression from being seen to being assessed to being trapped, each stage feeling inevitable, each one building on the last like floors of a building I never agreed to enter.
 
@@ -85,13 +85,13 @@ I let it go. Over and over and over. I smiled through hands on my back and comme
 
 One night crystallized it.
 
-A party at someone's apartment in Silver Lake. I was twenty-two. The lights were low and the music was loud and I was standing near the kitchen with a drink I had been holding for an hour without finishing because I had learned, by then, to hold a drink without drinking it: the glass as prop, as shield, as evidence that you were participating without letting anything dull the edge you needed to keep yourself safe.
+A party at someone's apartment in Silver Lake. I was twenty-two. The lights were low and the music was loud and I was standing near the kitchen with a drink I had been holding for an hour without finishing because I had learned, by then, to hold a drink without drinking it.
 
 A man I had been introduced to earlier, someone's friend, someone's colleague, put his hand on my arm. Then my shoulder. Then the back of my neck. Each touch slightly more intimate than the last, testing the boundary, reading my response. I did not pull away. I stood there with my prop drink and my smile and I felt the second consciousness spike like a needle on a gauge, every exit mapped, every possible trajectory of the next five minutes playing out simultaneously in my head. If I say something, he will say he was just being friendly. If I walk away, he might follow. If I stay, it might stop. If I stay, it might not.
 
 I stayed.
 
-Not because I wanted to. Because leaving felt like losing. Losing the party, losing the night, losing the right to be in a room without a man's hand on the back of my neck dictating the terms. I stayed because I was twenty-two and I had not yet learned that leaving is not losing. That removing yourself from a situation you did not create is not defeat. That the cost of staying is sometimes higher than the cost of going, even when going means walking alone to your car with your keys between your fingers, checking the back seat before you get in.
+Not because I wanted to. Because leaving felt like losing. Losing the party, losing the night, losing the right to be in a room without a man's hand on the back of my neck dictating the terms. I stayed because I was twenty-two and I had not yet learned that leaving is not losing. That the cost of staying is sometimes higher than the cost of going, even when going means walking alone to your car with your keys between your fingers, checking the back seat before you get in.
 
 He leaned close and said something into my ear. I don't remember the words. I remember the heat of his breath and the smell of whiskey and the specific weight of his hand, and I remember thinking, very clearly: I should leave. And then I remember not leaving. And then I remember, later, in the cab, staring at the lock button, wondering when exactly I had learned that a woman's discomfort was less important than a man's good time.
 
