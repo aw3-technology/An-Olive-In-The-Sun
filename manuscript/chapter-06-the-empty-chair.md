@@ -111,7 +111,7 @@ The holidays were the worst.
 
 Thanksgiving arrived and Mark sat at the table and carved the turkey and told a joke that made my uncle laugh and refilled everyone's wine glass with the practiced generosity of a man who wanted the bottle to empty faster. From the outside, the scene looked like a family. From the inside, it felt like watching a play where one of the actors has forgotten he is performing.
 
-His hands shook when he carved. Not dramatically. Just enough that the knife slipped twice and he laughed both times and said, "Turkey's fighting back." My mother took the knife from him gently, finished the carving herself, and no one acknowledged the transfer. No one acknowledged the transfer.
+His hands shook when he carved. Not dramatically. Just enough that the knife slipped twice and he laughed both times and said, "Turkey's fighting back." My mother took the knife from him gently, finished the carving herself, and no one acknowledged the transfer.
 
 After Christmas he was gone for four days. My mother told the neighbors he was visiting his brother in Sacramento. His brother lived in Portland.
 

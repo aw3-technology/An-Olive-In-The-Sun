@@ -27,21 +27,15 @@ The clock at 3 a.m. glowing red on the nightstand. The particular texture of exh
 
 Sometimes an intrusive thought would break through the loop. A flash of something violent. Someone I loved getting hurt. My own hands doing something terrible. The images were not mine. They arrived like signals from a station I had not tuned to, vivid and grotesque, and the shame of having them was worse than the images themselves. What kind of person thinks these things? What kind of brain produces, unprompted, a scene of harm and replays it in high definition until you want to claw the thought out of your own head?
 
-I did not know the word for any of this. I did not know that what I was doing had a clinical name, that other people did it too, that it was a disorder and not a moral failing. I thought I was broken in a way that was specifically mine: a defect in the machinery, a wire crossed somewhere deep in the architecture of who I was. I thought the counting and the checking and the catastrophizing were the price I paid for being alive, and I thought everyone else was paying a similar price and simply not talking about it, or I thought I was the only one, and either possibility was equally lonely.
-
-A private system, hermetically sealed, that made perfect sense from the inside and looked like madness from the outside.
-
-All of it was the worst. That is the texture of OCD at fifteen: there is no relief, only the brief pause between one compulsion completing and the next one beginning, a rest that lasts exactly long enough to remind you of what rest used to feel like.
+I thought I was broken in a way that was specifically mine: a defect in the machinery, a wire crossed somewhere deep in the architecture of who I was. I thought the counting and the checking and the catastrophizing were the price I paid for being alive, and I thought everyone else was paying a similar price and simply not talking about it, or I thought I was the only one, and either possibility was equally lonely.
 
 I was so tired. Not the kind of tired that sleep fixes. The kind that lives in the bones, in the muscles behind the eyes. I went to school. I came home. I checked the lock. I counted the tiles. I lay in the dark. I got up. I did it again.
-
-I did not know there was a word for it. I did not know there was a way out.
 
 And then someone handed me a drink.
 
 ---
 
-Getting ready for a party was its own kind of ritual, and maybe that is why it worked. A replacement compulsion. A better one.
+Getting ready for a party was its own kind of ritual.
 
 The outfit first. I stood in front of my closet the way I stood in front of the lock: with absolute focus. A pair of low-rise jeans from Hollister that I had saved for by babysitting the Garcias' kids three weekends in a row. A top I cannot name now but can still feel: thin straps, a blue so dark it was almost black, something that showed my collarbone. Converse, the black ones, the laces fraying. I dressed like I was constructing a person, which I was. The girl in the mirror was not the girl who counted ceiling tiles. She was someone else. Someone who went to parties and laughed easily and did not need to touch the doorframe before leaving the room.
 
@@ -69,7 +63,7 @@ The second beer tasted better than the first. By the third, the world had soften
 
 The anxiety did not disappear. It receded. Like a tide pulling back from the shore, exposing sand that had been underwater for years. I could see the ground. I could stand on it. I could breathe.
 
-This is the thing nobody tells you about self-medication: it works. Not permanently, not safely, not without cost. But it works. The first drink silenced the alarm. The second softened the world. The third gave me a personality I could tolerate. For a few hours on a Friday night, in somebody's living room with the lights off and the music loud and the windows steaming with the heat of bodies, I was a normal teenager. Not performing normalcy. Not running the audit while smiling. Actually normal. Actually free.
+The first drink silenced the alarm. The second softened the world. The third gave me a personality I could tolerate. For a few hours on a Friday night, in somebody's living room with the lights off and the music loud and the windows steaming with the heat of bodies, I was a normal teenager. Not performing normalcy. Not running the audit while smiling. Actually normal. Actually free.
 
 The pattern formed quickly, the way patterns do when they meet a need that has been unmet for years. During the week: school, the lock, the tiles, the letters, the 3 a.m. catastrophes, the jaw, the exhaustion. On the weekend: relief. Friday night became the hinge on which my entire week swung. Every ceiling tile I counted was endured because Friday was coming. Every rewritten date, every checked lock, every intrusive image of violence projected onto the inside of my eyelids at midnight. Endurable. Because Friday.
 
@@ -80,10 +74,6 @@ There was a moment, at a party in someone's backyard, when I saw my mother's han
 I put the cup down. Then I picked it up again. Because what else was I going to do. The alternative was the lock. The tiles. The 3 a.m. clock. The jaw aching in the dark. I was sixteen years old and no one had given me a better option.
 
 The friendships I made at parties were real in the way fireworks are real: bright, vivid, gone by morning. Girls I hugged in bathrooms and told I loved. Boys I kissed against fences and forgot. Conversations that felt profound at midnight and evaporated with the hangover. We did not know each other. We knew the versions of each other that only existed between eleven p.m. and two a.m., in dark rooms, with the music doing most of the emotional work. By Monday those people passed me in the hallway and we nodded, and the nod was an agreement: what happened at the party was a separate life. A parallel self. We did not owe that self anything in daylight.
-
-I learned to be social without being known. The skill would follow me into adulthood, would shape every friendship I made for the next fifteen years, would put me in wedding dresses watching three women laugh together, each of them holding a piece of me that the others had never seen. The compartmentalization started in those kitchens, in those backyards, in those bedrooms where I danced with strangers and told them things I would never say sober and woke up the next morning and went back to being the quiet girl with the neat handwriting.
-
-The parties taught me that connection was possible. They did not teach me that it could last.
 
 ---
 

@@ -25,7 +25,7 @@ A man in a pickup truck slowed beside me. He leaned across the passenger seat an
 
 I did not respond. I kept walking. My heart was slamming so hard I could feel it in my ears. The truck idled beside me for another half block before accelerating away, engine rattling, and I stood on the sidewalk with my backpack straps cutting into my shoulders and something new and permanent settling into my body.
 
-Not fear, exactly. Something more structural. The understanding that I was visible in a way I had not chosen. That my body had entered a public conversation I had not been invited to, and there was no way to leave it, no way to revoke the membership, no outfit or posture or route home that would make it stop.
+Not fear, exactly. Something more structural.
 
 I did not tell my mother. I did not tell anyone. I went home and did my geometry homework and ate a bowl of cereal standing at the counter and went to bed, and the next morning I put on the same uniform and walked the same route because that was the only route there was. I did think, briefly, about the skirt. Whether a longer skirt would have changed anything. I was fourteen and I was already negotiating with the theory that my clothing was an invitation someone else got to RSVP to.
 
@@ -61,8 +61,6 @@ It started at fourteen and it never stopped.
 
 The strange thing was how easily it merged with what was already there. The anxiety, the OCD, the compulsive scanning for what could go wrong. Before any man on the street ever said a word to me, I was already cataloguing threats. My brain arrived primed for vigilance. The world just gave it new material.
 
-There is a broader pattern, and it moves like a tide. At nine, I was looked at. Boys on the playground who said things I did not yet understand, comments about my body that I absorbed without context, the way children absorb everything, silently, recording. At fourteen, I was appraised. The truck. The catcalls. The slow education in what it meant to have a body that other people felt entitled to narrate. At twenty-one, I was cornered. The photographer. The producer. The man at the party. The progression from being seen to being assessed to being trapped, each stage feeling inevitable, each one building on the last like floors of a building I never agreed to enter.
-
 The clothing motif ran through all of it. That first day, the plaid skirt. In the studio, a silk camisole someone else chose. At the party, a dress I had picked carefully, standing in front of my mirror for twenty minutes, running the calculus: this one is too short, this one is too low, this one says something I do not mean, this one says nothing at all, which might be worse. The impossible negotiation of dressing for yourself in a world that reads your body as a message addressed to someone else. Every morning a small act of defiance or surrender or both, and the difference between them was never clear, not even to me.
 
 I wore what I wanted. Things happened anyway.
@@ -73,11 +71,11 @@ The variable was never the clothing.
 
 ---
 
-My mother never taught me how to handle any of this. Not because she didn't know. Because she handled it the same way she handled everything else: by enduring. By smiling through the comment, the look, the hand on her arm at the office Christmas party from the executive who had three drinks and no boundaries. By absorbing it into the body's daily inventory of things to survive and moving on to the next task. She must have had her own catalogue. Every woman does. She never showed me hers and I never asked, and the silence between us on this subject was its own kind of inheritance. Endurance as femininity. Silence as strategy. The lesson passed down not through conversation but through demonstration, the way all the most durable lessons are.
+My mother never taught me how to handle any of this. Not because she didn't know. Because she handled it the same way she handled everything else: by enduring. By smiling through the comment, the look, the hand on her arm at the office Christmas party from the executive who had three drinks and no boundaries. By absorbing it into the body's daily inventory of things to survive and moving on to the next task. She must have had her own catalogue. Every woman does. She never showed me hers and I never asked, and the silence between us on this subject was its own kind of inheritance. Endurance as femininity. Silence as strategy.
 
 I learned the strategy before I learned it was a strategy. Smile when you are uncomfortable. Laugh when you are not amused. Say thank you when what you mean is stop. Make yourself smaller, quieter, more agreeable, because the alternative, the confrontation, the anger, the scene, always costs more than the thing you are trying to stop. A man at a bar puts his hand on your waist and you have three options: endure it, move away politely, or tell him to stop. The first costs you nothing visible. The second might work. The third could cost you anything: his embarrassment turning to anger, the word "bitch" hurled across the room like something thrown, the friend group splitting into factions, the rest of the night spent explaining why you couldn't just let it go.
 
-I let it go. Over and over and over. I smiled through hands on my back and comments about my body and eyes that lingered too long and jokes that were not jokes and invitations that were not invitations. I let it go because letting it go was cheaper than holding on. Because holding on meant becoming the woman who made a scene, the woman who couldn't take a compliment, the woman who ruined the evening by naming the thing everyone else was willing to ignore. I learned to make myself smaller long before I learned I had the right to take up space.
+I let it go. Over and over and over. I smiled through hands on my back and comments about my body and eyes that lingered too long and jokes that were not jokes and invitations that were not invitations. I let it go because letting it go was cheaper than holding on. Because holding on meant becoming the woman who made a scene, the woman who couldn't take a compliment, the woman who ruined the evening by naming the thing everyone else was willing to ignore. I learned to make myself smaller.
 
 ---
 
@@ -93,7 +91,7 @@ Not because I wanted to. Because leaving felt like losing. Losing the party, los
 
 He leaned close and said something into my ear. I don't remember the words. I remember the heat of his breath and the smell of whiskey and the specific weight of his hand, and I remember thinking, very clearly: I should leave. And then I remember not leaving. And then I remember, later, in the cab, staring at the lock button, wondering when exactly I had learned that a woman's discomfort was less important than a man's good time.
 
-The answer was: always. I had always known that. The lesson was the first one, and the most durable, and it arrived so early that by the time I was old enough to question it, it had already calcified into reflex.
+The answer was: always. I had always known that. The lesson arrived so early it calcified into reflex.
 
 ---
 

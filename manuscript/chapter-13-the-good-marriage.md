@@ -13,7 +13,7 @@ Fifteen minutes. I feel it in my jaw first, the tightening, the clench. Fifteen 
 
 I look at my grandparents again. They sit the way they have always sat. Close enough to touch. Not touching.
 
-Trusting someone else to hold it is, I realize, the entire thesis of the day.
+I look at my grandparents again. They sit the way they have always sat. Close enough to touch. Not touching.
 
 ---
 
@@ -147,7 +147,7 @@ Gratitude. That such a place existed. That somewhere in the world there was a ta
 
 And grief. Because I could not stay there. Because that house was not my house. Because the world I came from did not operate by those rules, and no amount of Sunday dinners could change the thing I went home to. Because the safety I felt at their table was real, but it was borrowed, and the borrowing made the returning worse.
 
-Their marriage was a house I could visit but never live in.
+The headlights cut through the Marin County fog.
 
 ---
 

@@ -83,9 +83,7 @@ I did not think about this. I thought around it, the way you walk around a hole 
 
 The uniform helped. When everyone looks the same, desire has nowhere to attach. Or it attaches everywhere, diffused and ambient, a low hum beneath the plaid and the prayers and the Hail Marys. You could love a girl in a way the school had no language for, and the school's silence on the subject functioned as both prohibition and permission. What goes unnamed goes unpoliced.
 
-I loved Megan and Caroline the way you love the only country you have ever known. Completely. Without perspective.
-
-I did not know it was the kind of love that could be lost.
+I loved Megan and Caroline the way you love the only country you have ever known.
 
 ---
 
@@ -115,7 +113,7 @@ I nodded. I understood about things not making sense anymore.
 
 "I'll still see you," she said. "On weekends."
 
-We both knew that weekends were where friendships went to die. Weekends were a hospice for the kind of closeness that required hallways and shared desks and the daily accumulation of presence. You cannot sustain a country through occasional visits. The borders dissolve. The language fades.
+We both knew that weekends were where friendships went to die.
 
 Caroline left in May.
 
@@ -149,7 +147,7 @@ The Blackberry sat on my nightstand. The green light was dark.
 
 No one was sending anything. No one was awake on the other end, holding the wire. The tether had come loose so slowly I had not noticed until it was already gone.
 
-I pulled the covers over my head and lay there in the dark, breathing. Not crying. Not sleeping. Just existing in the space between what I had lost and what I had not yet found. The first fracture of belonging beyond family. The first time I understood that even the things you choose can be taken from you.
+I pulled the covers over my head and lay there in the dark, breathing. Not crying. Not sleeping.
 
 ---
 
@@ -157,10 +155,10 @@ Caroline is walking toward me now, across the patio, past the cocktail tables an
 
 She reaches me and we hug. The embrace is warm and brief, the kind of hug you give someone you once knew completely and now know not at all. Her perfume smells like gardenias. She holds me at arm's length and says I look beautiful.
 
-"Thank you for coming," I say, and mean it, though what I mean is more complicated than gratitude.
+"Thank you for coming," I say.
 
 She starts telling me about her life. Two kids. A house in Walnut Creek. She teaches second grade. She says it like a list, the way people summarize decades when standing on patios at weddings. I nod and smile and ask the right questions, and somewhere beneath the conversation I am watching a girl in a plaid skirt fold a note into a paper crane, and another girl with a cracked paperback in her bag, and a bedroom with Saturday light striped across the carpet.
 
 A version of me that no longer exists, known by a person who no longer knows me.
 
-I watch Caroline rejoin her husband by the bar, and I hold my champagne glass and wonder what she would say if I told her the truth. That the uniform was the last thing I ever wore that told me exactly who to be. That I have been standing in front of the closet ever since.
+I watch Caroline rejoin her husband by the bar.

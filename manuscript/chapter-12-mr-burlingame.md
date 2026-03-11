@@ -71,19 +71,13 @@ The divorce was quiet. No one yelled. No one drove a go-kart onto a freeway. The
 
 I thought about this often as I got older. My grandfather's thesis was charm. The negation was loneliness. And the synthesis, if there was one, was a man sitting alone at a bar in Burlingame at eight o'clock on a Wednesday, perfectly dressed, smiling at the bartender, a martini in his hand, the olives at the bottom catching the light.
 
-Three men built the architecture of what I expected from masculinity, though none of them intended to and none of them would recognize the blueprints. My father: distance and creativity. A man who loved in wavelengths too long to feel, whose presence was intermittent as a signal from a faraway radio station. Mark: chaos and destruction. A man whose love was a weather event, loud and present and capable of leveling everything in its path. And my grandfather: charisma and decadence. A man who could make you feel like the center of the world for an evening and then go home to a wife he had already left in every way except the legal one.
-
-None of them was a villain. That is the problem with fragments. A villain you can reject cleanly. A fragment you carry.
-
-I was seven at Mr. Burlingame's, and what I learned there was not about restaurants or martinis or the way wealthy people move through the world, though I learned those things too. What I learned was subtler and worse. I learned that warmth could be performed. That a room full of laughter could be a room full of loneliness. That the people who seemed most at ease were sometimes the people working hardest to maintain the appearance of ease, and the cost of that maintenance was paid by someone who was not in the room.
-
 My grandmother was not in the room.
 
 The class of it stayed with me too, though it took longer to name. My grandfather's world was insulated. Money absorbed the recklessness the way good leather absorbs a stain. You could drink too much and divorce badly and retreat into a performance of contentment, and if you had enough money, the performance held. The seams did not show. Nobody staged an intervention for a man in cufflinks drinking Tanqueray in a booth with white tablecloths. That was not a problem. That was a lifestyle.
 
 My mother's world could not absorb anything. When things broke in her world, they stayed broken. When Mark fell apart, there was no trust fund to catch him, no restaurant where the bartender knew his name and the ugliness could be conducted in private. There was a truck with a manual transmission and an eleven-year-old behind the wheel.
 
-I moved between these worlds without belonging to either. My grandfather's weekends, then my mother's weekday mornings. Shirley Temples and grilled cheese on white tablecloths, then cereal standing at the kitchen counter because we were running late again. I learned to adjust my posture, my vocabulary, my expectations. I learned that money did not prevent dysfunction but it did provide better furniture to be dysfunctional on. I learned that a man could be successful and bankrupt at the same time, if you measured by the right currencies.
+I moved between these worlds without belonging to either. My grandfather's weekends, then my mother's weekday mornings. Shirley Temples and grilled cheese on white tablecloths, then cereal standing at the kitchen counter because we were running late again. I learned to adjust my posture, my vocabulary, my expectations.
 
 The olives. I keep coming back to the olives.
 

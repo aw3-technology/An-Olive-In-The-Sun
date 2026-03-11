@@ -9,7 +9,7 @@ I turn. She is smiling. It is a generous smile, the kind attached to a complimen
 
 "You should have stayed in it. You could have been big." She touches my arm lightly, a punctuation mark. Her eyes move across my face, my collarbone, the line of my dress, quick as a cash register.
 
-"Thank you," I say. And I do mean it. I am grateful for the kindness inside the sentence, even as the sentence itself lands somewhere I did not invite it. Being told you should have stayed in modeling is a specific kind of compliment. It praises the thing you were and implies the thing you became was less. She does not know this. She is being nice. I smile and tilt my head the way I learned to tilt it a long time ago, and the muscle memory is so precise it frightens me.
+"Thank you," I say. And I do mean it. I am grateful for the kindness inside the sentence, even as the sentence itself lands somewhere I did not invite it. She does not know this. She is being nice. I smile and tilt my head the way I learned to tilt it a long time ago, and the muscle memory is so precise it frightens me.
 
 ---
 
@@ -35,7 +35,7 @@ The men arrived with the rooms. They were already there when I got there, leanin
 
 Some of them were. Some of them were smart, funny, interesting. One of them told me about Basquiat while we stood on a rooftop in Echo Park, and I thought, briefly, that this was what my twenties were supposed to be. Art and rooftops and ideas and the city spread out beneath us like a promise. For about forty-five minutes I believed I had arrived somewhere worth arriving.
 
-Then his hand moved to my lower back and kept going, and the conversation about Basquiat turned into a negotiation I hadn't agreed to, and I understood that the rooftop and the art and the whiskey and the ideas had been a runway, not a destination. Every beautiful thing in that world was a runway. You walked down it and at the end, someone was waiting to take something.
+Then his hand moved to my lower back and kept going, and the conversation about Basquiat turned into a negotiation I hadn't agreed to, and I understood that the rooftop and the art and the whiskey and the ideas had been a runway, not a destination.
 
 I kept going to the parties. This is the part that is hard to explain, because from the outside it looks like a choice, and from the inside it felt like gravity. I didn't have anywhere else to go. My apartment was a studio in Koreatown with a window that looked onto another window, and my hostess job ended at midnight, and my roommate from college had already gone to law school in Boston, and my mother was in Northern California managing her own wreckage, and Mark was still alive then but only in the way a fire is alive when it's down to embers. I did not want to sit in my apartment thinking about Mark. I did not want to think about my mother's voice on the phone, the specific thinness of it, the way she described his drinking now with a flatness that was scarier than the panic had been.
 
@@ -47,7 +47,7 @@ There was a photographer. There is always a photographer. This one had a studio 
 
 I finished the shoot. He got his frames. I got a check for four hundred dollars and a sick feeling that lasted for weeks.
 
-The night I remember most clearly is not the worst one. It was ordinary, which is what made it so perfectly terrible.
+The night I remember most clearly is not the worst one. It was ordinary.
 
 A house party in Laurel Canyon. Someone's boyfriend's producer's house, one of those possessive chains that passed for credentials. The house was all glass and cantilevered wood, perched on a hillside, the kind of architecture that looks like it's daring gravity to try something. Lady Gaga was playing through speakers embedded in the walls. The pool was lit from below, that chemical turquoise that makes everything look like a movie about Los Angeles. Girls in cutoff shorts and boots stood near the water holding drinks they hadn't paid for. A DJ set up in the corner of the living room, though no one was dancing, because dancing would have meant wanting something too visibly.
 
@@ -82,10 +82,6 @@ Across the lawn, the woman in the gold dress is showing someone her phone. A pho
 I catch myself adjusting my posture. Shoulders back. Chin lifted. The old alignment, the one that was trained into my body by cameras and casting directors and the hallways of Hollywood houses. The muscle memory is still there, lodged somewhere between my spine and my self-consciousness, and when a beautiful woman enters a room my body still responds before my mind can intervene.
 
 I let my shoulders drop. I let the posture go. It releases like a held breath.
-
-I am not that girl anymore. The girl in the bathroom mirror with the mascara smudged and the emptiness behind her eyes, the girl who mistook proximity for arrival, who thought that if the room was beautiful enough, she might be beautiful enough, and if she was beautiful enough, she might be enough.
-
-I am also still her. I will always be a little bit still her. The difference is that now I know what I was running from, and I know that no room, however gilded, was ever going to outrun it. The parties were not freedom. They were the most expensive way I ever found to hide.
 
 Will's mother's friend is still beside me, smiling, waiting for something. I realize I never really answered her.
 

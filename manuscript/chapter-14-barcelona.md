@@ -39,7 +39,7 @@ It did not occur to me to ask because I did not yet know that I would need her. 
 
 We flew into Barcelona on a Wednesday in late September. The plane descended over the coast and I pressed my forehead against the window and watched the Mediterranean appear below us, flat and impossibly blue, the kind of blue that seems artificial until you see it in person and realize that the artificial versions were always trying to imitate this. The city spread from the water's edge up into the hills, dense and ochre and glittering in the late afternoon, and Nadia leaned across me to take a photo through the scratched plastic of the airplane window, her shoulder against mine, her camera clicking twice, and I thought: this is what it feels like to be chosen.
 
-Not loved, necessarily. Chosen. Selected from the available options by someone whose taste you trusted. Nadia had been to fourteen countries. She could have asked anyone. She asked me.
+Not loved, necessarily. Chosen. Nadia had been to fourteen countries. She could have asked anyone. She asked me.
 
 The apartment was small and bright and smelled like cedar and old paper. The floors were terra-cotta tile, uneven in places, cool under bare feet. One window faced the narrow street below, where the guitar shop's owner sat on a stool each morning playing flamenco scales that drifted up through the glass like something the building was dreaming. The other window faced a courtyard where someone had strung white lights between the balconies, and at night they swayed in the breeze off the water and made shadows that moved across our ceiling like small, slow fish.
 
@@ -105,7 +105,7 @@ On the sixth day she sat on the edge of the bed and said the thing I had been wa
 
 "I didn't come to Barcelona to sit in a hotel room."
 
-She said it quietly. Without malice. The way you might state a fact about the weather or the time. She was not cruel. That is the thing I need you to understand. She was not cruel. She was limited. There is a difference, and the difference matters, because cruelty would have been easier to forgive. Cruelty comes from somewhere, has a shape, a reason, a wound you can identify and, with enough therapy, understand. Limitation is just a wall. Smooth, featureless, impossible to climb. She could not be needed. She could be wanted, admired, desired, enjoyed. But needed was a room she could not enter, and my illness had locked us both inside it.
+She said it quietly. Without malice. The way you might state a fact about the weather or the time. She was not cruel. She could not be needed. She could be wanted, admired, desired, enjoyed. But needed was a room she could not enter, and my illness had locked us both inside it.
 
 "I'm going to Lisbon for a few days," she said. "Sofia has a place there. I'll be back before the end of the week."
 
@@ -150,7 +150,5 @@ I thought about what Nadia had said. That she wasn't ready. That she wished me w
 Everyone had been ready for something. Just never the thing I needed.
 
 The olive oil pooled in the rough surface of the bread. I watched it settle into the small craters and crevices the way water finds the lowest ground, patient and without ambition, filling what was empty because that is what oil does. The body, stripped of everything, will still reach for something nourishing. Will still sit down at a table and tear bread and eat.
-
-This is what I learned in Barcelona, though I would not have called it learning at the time. At the time I would have called it surviving, which is what I called everything, because my family had taught me that surviving was the highest aspiration, the thing you did when all other options had been exhausted. But it was more than that. It was the first time I fed myself when no one was watching. The first time I sat alone with my own hunger and answered it without waiting for someone else to notice.
 
 The sun dropped lower. The waiter collected my plate. I paid and stood and walked slowly back through the streets that Nadia had photographed and I had walked through sick and invisible, and they were still beautiful, and I was still alone, and both of those things were true at the same time, and I did not try to make one of them cancel the other.

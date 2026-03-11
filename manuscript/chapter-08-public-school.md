@@ -31,7 +31,7 @@ I sat at an empty table near the window. Ate my sandwich. Did not look up.
 
 By the end of the first week, I had mapped the room. Not consciously. The way you learn the exits in a building without deciding to, the way your eyes find the door before your mind admits it is looking. This table is safe. That group will let you sit on the edge without asking questions. That boy by the vending machine watches everyone who walks past, and you should not walk past. The girl in the corner with the headphones is alone on purpose, which is different from being alone by accident, and if you sit near her she will not speak to you but she will not move, and that is enough.
 
-I learned to read a room in thirty seconds. Who was dangerous, who was bored, who was watching, who would let you disappear. It was a skill I had been practicing since I was five years old, sitting at the kitchen table while my parents' marriage ended, and I did not yet know it had a clinical name. I just thought I was paying attention.
+I learned to read a room in thirty seconds. Who was dangerous, who was bored, who was watching, who would let you disappear. I just thought I was paying attention.
 
 ---
 
@@ -75,9 +75,9 @@ The pink walls of childhood were behind me. My new rooms were blue. Navy comfort
 
 The woman in the green dress is finishing her reunion story. Her husband refills her champagne. She mentions that her best friend from sophomore year still lives two blocks from the school, still drives past it every morning on the way to the elementary school where she teaches. She says this with a kind of wonder, as though the continuity itself is remarkable, as though staying in one place your whole life is an achievement rather than just a thing that happened because nothing forced you to leave.
 
-I smile. A small, polite smile, the kind I have been practicing since the first cafeteria, the first new hallway, the first morning of standing in a doorway and calculating where to sit. The smile of a woman who learned, very young, that arrival is not the same as belonging, and that some people build their lives in a single place while others build theirs from whatever room they happen to be standing in.
+I smile. A small, polite smile, the kind I have been practicing since the first cafeteria, the first new hallway, the first morning of standing in a doorway and calculating where to sit. A smile I have been practicing since the first cafeteria.
 
-Through a window, I catch a glimpse of Will across the venue, leaning against a doorframe, talking to his best man. He went to one school. K through 12, the same brick building, the same friends, the same lunch table for thirteen years. He describes his childhood the way the woman in green describes her reunion: warmly, simply, without the awareness that what he is describing is extraordinary. He does not know what it cost me to get here. Not because he does not care. Because some distances can only be measured by someone who walked them.
+Through a window, I catch a glimpse of Will across the venue, leaning against a doorframe, talking to his best man. He went to one school. K through 12, the same brick building, the same friends, the same lunch table for thirteen years. He describes his childhood the way the woman in green describes her reunion: warmly, simply, without the awareness that what he is describing is extraordinary. He does not know what it cost me to get here.
 
 The woman laughs at something her husband says. I reach for a champagne glass on the table. The bubbles rise in thin columns, small and persistent, each one arriving at the surface and vanishing the instant it gets there.
 
