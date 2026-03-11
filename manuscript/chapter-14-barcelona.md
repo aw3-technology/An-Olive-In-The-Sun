@@ -3,11 +3,7 @@
 
 A server passes with bruschetta on a wooden board, and the smell reaches me before the food does. Olive oil. Warm and grassy and so unmistakably Mediterranean that for a moment I am not standing in Northern California at all. I am somewhere else. Somewhere with narrower streets and hotter light and a version of myself I have spent a decade trying to forget.
 
-The crowd has drifted. I notice this the way you notice weather changing, not with your mind but with your skin. One moment I am surrounded by people, their voices and perfume and the clink of glasses forming a kind of architecture around me, and the next moment the architecture is gone. They have moved toward the bar, toward the ceremony site, toward each other. I am standing alone near the edge of the terrace, and the aloneness registers in my body before my mind catches up. A tightening across my chest. A contraction in my stomach. The cellular memory of what it feels like when no one is coming.
-
-I touch the hem of my dress. Smooth it. Touch it again. My fingers need something to hold.
-
-The aloneness lasts only seconds. Someone will call my name. Someone always calls my name today. But my nervous system doesn't know that. My nervous system is in a hotel room in the Barri Gotic, twenty-two years old, watching the door and understanding, slowly, that it is not going to open.
+I touch the hem of my dress. Smooth it. Touch it again. My fingers need something to hold. My nervous system is in a hotel room in the Barri Gotic, twenty-two years old, watching the door and understanding, slowly, that it is not going to open.
 
 ---
 
@@ -33,7 +29,7 @@ Barcelona was her idea. She had a friend with an apartment in the Barri Gotic, t
 
 I said yes the way I said everything to Nadia. Immediately. Without asking the questions I should have asked. What are we, exactly? What happens when the month is over? What do you do when someone needs you?
 
-I packed for Barcelona the way I always packed: as though the suitcase were a self-portrait. A linen blazer I'd bought at a consignment shop in the Mission. Two cotton dresses, neither of them expensive, both of them chosen for the way they moved. Sandals. A scarf I stole from my sister. I wanted to look like a woman who traveled lightly, who was not trying too hard, who had arrived at her aesthetic without effort. I was trying very hard. The suitcase was a lie I told in fabrics, the same lie I had been telling since I was thirteen and laying out my school clothes the night before. The version of myself I packed was not the version who counted tiles and checked locks. She was the version who drank wine at sidewalk tables and photographed shadows and kissed women in foreign cities without needing to explain herself to anyone.
+I packed for Barcelona the way I always packed: as though the suitcase were a self-portrait. A linen blazer I'd bought at a consignment shop in the Mission. Two cotton dresses, neither of them expensive, both of them chosen for the way they moved. Sandals. A scarf I stole from my sister. I wanted to look like a woman who traveled lightly, who was not trying too hard, who had arrived at her aesthetic without effort. I was trying very hard. The version I packed was not the version who counted tiles and checked locks. She was the version who drank wine at sidewalk tables and kissed women in foreign cities without needing to explain herself to anyone.
 
 It did not occur to me to ask because I did not yet know that I would need her. And because needing someone felt, at twenty-two, like the thing I was trying most urgently to outgrow.
 
@@ -63,11 +59,9 @@ I was happy. Or something so close to it that the difference didn't matter.
 
 ---
 
-What it meant to be with a woman. I should say something about that, because it was part of the story and not part of the story at the same time.
+What it meant to be with a woman. I had been drawn to women since I was old enough to notice the quality of my attention, the way it sharpened around certain people. I noticed boys too. I noticed everything.
 
-It was not a revelation. It was more like finding a word for something I had always felt but never needed to name. I had been drawn to women since I was old enough to notice the quality of my attention, the way it sharpened around certain people, certain kinds of beauty that had nothing to do with what I'd been taught to want. I noticed boys too. I noticed everything. The problem was never attraction. The problem was that no one had given me a language for it, and the languages I had been given were wrong.
-
-Catholic school called it sin. The Jesuit college practiced careful silence. The modeling world fetishized it for the camera, two girls kissing at a party while men watched, which was not queerness but performance. My sexuality existed in the gaps between every institution I had ever passed through, too real to ignore and too unscripted to announce.
+Catholic school called it sin. The Jesuit college practiced careful silence. The modeling world fetishized it for the camera, two girls kissing at a party while men watched, which was not queerness but performance.
 
 When I told my mother I was seeing a woman, she changed the subject to a coworker's retirement party. My grandparents did not acknowledge it. My sister shrugged. "Okay," she said, and went back to her phone.
 
@@ -149,6 +143,22 @@ I thought about what Nadia had said. That she wasn't ready. That she wished me w
 
 Everyone had been ready for something. Just never the thing I needed.
 
-The olive oil pooled in the rough surface of the bread. I watched it settle into the small craters and crevices the way water finds the lowest ground, patient and without ambition, filling what was empty because that is what oil does. The body, stripped of everything, will still reach for something nourishing. Will still sit down at a table and tear bread and eat.
+The olive oil pooled in the rough surface of the bread. I watched it settle into the small craters and crevices the way water finds the lowest ground, patient and without ambition, filling what was empty because that is what oil does.
 
 The sun dropped lower. The waiter collected my plate. I paid and stood and walked slowly back through the streets that Nadia had photographed and I had walked through sick and invisible, and they were still beautiful, and I was still alone, and both of those things were true at the same time, and I did not try to make one of them cancel the other.
+
+---
+
+A hand on my elbow. Will. He has appeared beside me the way he does, without announcement, without needing to fill the silence before he enters it.
+
+"You went somewhere," he says. Not a question.
+
+The late afternoon light catches the edge of his jaw, the small scar above his eyebrow he has told me about twice, both times leaving out the part that hurt. He is holding two glasses of water. One for him. One already extended toward me.
+
+I take it. The glass is cold and beaded with condensation, and when I drink, the water tastes like nothing, which is exactly what I need.
+
+"Barcelona," I say.
+
+He nods. He does not ask me to explain. He has learned that I will tell him the rest later, or I won't, and either way he will be in the same room.
+
+We stand together at the edge of the terrace. Beyond the ceremony site, the hills hold the last of the afternoon light the way a cupped hand holds water, gently, knowing it will go. A mockingbird lands on the stone wall and tilts its head and is gone.

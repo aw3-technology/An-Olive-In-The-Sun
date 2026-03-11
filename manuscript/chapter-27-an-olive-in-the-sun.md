@@ -21,17 +21,13 @@ I see them now.
 
 They are not beautiful in the way that other trees are beautiful. Not the way redwoods are beautiful, or aspens in autumn, or the live oaks on the Jesuit campus that threw long yellow sheets of light across the path I walked a hundred times with a backpack on my shoulder and a counting ritual in my head. Olive trees are not majestic. They are not symmetrical. They do not reach for the sky with the confident verticality of trees that grew in good soil with enough water and the right amount of shade.
 
-Olive trees grow sideways. They twist. Their trunks are thick and gnarled, knotted with the evidence of every season that tried to break them. The bark is rough and fissured, gray and silver in the fading light, and the branches reach outward in directions that seem arbitrary until you understand that each one is the tree's answer to a specific pressure. Wind from the west, so the branch grew east. Drought in the summer, so the roots went deeper. Rocky soil, so the trunk thickened rather than rose.
+Olive trees grow sideways. They twist. Their trunks are thick and gnarled, knotted with the evidence of every season that tried to break them. The bark is rough and fissured, gray and silver in the fading light, and the branches reach outward in directions that seem arbitrary until you understand that each one is the tree's answer to a specific pressure.
 
 They are not straight. They were never going to be straight.
 
 I walk closer. The nearest tree is shorter than I am, its canopy dense with small silver-green leaves that shiver slightly in the evening breeze. The trunk is maybe eight inches across but it looks ancient, its surface a topography of scars and ridges, the record of a life spent enduring conditions that would have killed something less stubborn. I touch it. The bark is cool and rough under my fingers, textured like something geological, like something that has been here longer than anything built by humans.
 
 I think about a cafe in Barcelona where I ate bread dipped in olive oil while my body was breaking and the oil was the densest, most nourishing thing I had tasted in weeks. Something from trees like this one. From rocky ground and relentless heat.
-
-I used to believe that my life was evidence of something broken. A pattern repeating. Grandparents who divorced. Parents who divorced. A family where love was a temporary condition, a weather system that passed through and left damage. I built a file in my head, entry after entry, the data accumulating across decades until the conclusion felt not like a belief but like a law of physics. Love collapses. This is what the evidence shows.
-
-But evidence is not the same as destiny. I know that now. I learned it in a philosophy seminar and then spent fifteen years learning it again in my body, which is slower than my mind and more honest. The pattern is real. I carry it in my bones, in the way my hands shake, in the way my brain runs its calculations. And I am also not the pattern. I am what happened when the pattern met a person who refused to accept it as the final word.
 
 Here I am. Standing. Thirty-four years old, married since this afternoon, wearing a dress with a wine stain near the hem that I got during the first dance and haven't thought about since. I am standing outside in the October air next to an olive tree that is older than everyone at this wedding, and I am breathing, and I am not the person who woke up this morning convinced the dream was a prophecy.
 
@@ -43,13 +39,13 @@ Seven. Eight. Nine. Ten.
 
 I notice it. I name it. I let it go.
 
-The counting does not stop. I just stop needing it to stop. That is the difference. That is every therapist appointment and every medication adjustment and every morning I woke up and took the pills and went to work and taught a room full of teenagers how to read a poem. Not the absence of the machinery. The ability to walk through the door while it runs.
+The counting does not stop. I just stop needing it to stop.
 
 I press my thumbnail into my index finger. Once. Twice. Three times. Four. The ritual is there. It is always there. And I am also here, outside, with the olive trees and the sunset and the faint sound of music leaking through the walls of the reception hall, and both things are true at the same time, and I have stopped asking them to cancel each other out.
 
 The sun drops lower. The light turns the color of something I don't have a word for. Not gold. Not amber. Something between the two, dense and luminous and warm.
 
-I think about my mother, inside, at the table where she gave a toast two hours ago with her voice breaking on a word I couldn't hear because I was crying. I think about my father, somewhere near the bar, probably holding a glass of something he won't finish, standing at the comfortable distance he has maintained my entire life, close enough to see, too far to reach. I think about my sister, who told me this morning that she was jealous, and meant it, and then picked up the mascara wand and kept going. I think about Mark, who is not here, whose chair is empty, whose absence is the loudest silence in the room. I think about the professor in the tweed jacket who taught me that history moves forward through contradiction, and about the hospital bed where I lay counting ceiling tiles at three in the morning, and about the cafe in Barcelona where I ate bread with olive oil and decided, without deciding, that I would keep feeding myself even when no one was watching.
+I think about my mother, inside, at the table where she gave a toast two hours ago with her voice breaking on a word I couldn't hear because I was crying. My father, somewhere near the bar, standing at the comfortable distance he has maintained my entire life. Mark, who is not here, whose chair is empty, whose absence is the loudest silence in the room.
 
 I think about Will. Inside. My husband.
 
@@ -57,15 +53,13 @@ The word is strange in my mouth. Husband. I have said it three times today and e
 
 I chose him. Not because I believe we are different from every couple who came before us. Not because I have evidence that this will last. I have no evidence. The evidence I have runs in the other direction, a long unbroken line of love that ended. My grandparents. My parents. Mark and my mother. Nadia and me. Will and me, the first time, when we were nineteen and the coffee mug hit the wall and the silence that followed lasted fourteen years.
 
-I chose him because I have learned, slowly, over the course of a life that has been harder than it should have been and more beautiful than I expected, that choosing is the point. Not the outcome. Not the guarantee. The act of standing at the threshold and walking through it. The act of saying: I know this might fail. I know I come from a long line of failures. I know my brain will count the days and look for patterns and calculate the probability of collapse. And I am choosing anyway. Because the alternative is the kitchen table and the silence and the five-year-old who went still when the world fell apart, who learned to postpone feeling until the feeling calcified into something she called strength and was actually just numbness.
+I chose him because choosing is the point. Not the outcome. Not the guarantee. I know this might fail. I know my brain will count the days and look for patterns and calculate the probability of collapse. And I am choosing anyway.
 
 I do not want to be numb anymore. I want to feel the thing I am feeling right now, standing on the terrace in a stained dress in the fading light. The thing that is not joy, exactly, and not peace, exactly, and not the triumph that books about difficult lives are supposed to end with. It is something quieter. Something without a name. The feeling of standing in a place you built, looking at it clearly, knowing it is yours.
 
 The sun is almost gone. The last light catches the olive leaves, turning them silver, and the sky behind the hills is the color of a bruise that is healing, purple and blue and gold at the edges, the specific palette of a Northern California October evening that I have known my entire life and never really seen until now.
 
-I look at the tree one more time. Its twisted trunk. Its stubborn branches. The fruit it bears in spite of everything.
-
-An olive in the sun.
+I look at the tree one more time. Its twisted trunk. Its stubborn branches. The fruit it bears in spite of everything. An olive in the sun.
 
 I turn around. The door to the reception hall glows warm from the inside, light spilling through the glass in a long rectangle across the stone terrace. And there, in the glass, my reflection. A woman in a white dress with a wine stain near the hem, standing next to an olive tree in the last light. I look at her the way I have looked at myself in mirrors since I was a girl in a hotel bathroom on the morning of her wedding, since I was a teenager in front of a closet constructing a person from fabric, since I was a patient in a hospital gown learning that everything she had built could be folded into a plastic bag. The woman in the glass is all of those women. She does not look away. I can see shapes moving behind her. People dancing. My people. The fragments of a life assembled in one room, imperfect and incomplete and, tonight, enough.
 

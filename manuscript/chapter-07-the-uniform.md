@@ -29,7 +29,7 @@ The school sat on a hill above a parking lot shaded by live oaks, a two-story st
 
 There is a particular freedom in being told what to wear. You wake up and the question is already answered. The plaid skirt, the white shirt, the cardigan. You look like everyone else. For a girl who spent most of her time scanning rooms for danger, reading faces for the first sign of collapse, the sameness was a kind of rest. I could stop performing. I could just be a girl in a uniform, indistinguishable from forty other girls in the same uniform, and the anonymity was the closest thing to safety I had ever known.
 
-I found Megan first. Or she found me. It is hard to remember the mechanics of early friendship because it happens the way weather happens: you do not notice the temperature changing until you are already inside it.
+I found Megan first. Or she found me.
 
 Megan Callahan sat behind me in Sister Mary Catherine's religion class and passed me a note during a lecture on the Beatitudes that said, in round, careful handwriting: *Is it just me or does Sister MC look exactly like a parrot?*
 
@@ -37,9 +37,9 @@ She did, in fact, look exactly like a parrot. The curved nose. The darting head 
 
 I turned around and Megan was already grinning, and I knew. The way you know at thirteen, instantly and without evidence, that someone is your person.
 
-Caroline came next, pulled into our orbit by proximity and a shared lunch period. She was quieter than Megan, more watchful. She carried a worn copy of *The Perks of Being a Wallflower* in her backpack for the entire first semester, its spine so cracked the pages were starting to separate. She read it the way other girls read Scripture. I understood that impulse. Some books are not books. They are mirrors shaped like paper.
+Caroline came next, pulled into our orbit by proximity and a shared lunch period. She was quieter than Megan, more watchful. She carried a worn copy of *The Perks of Being a Wallflower* in her backpack for the entire first semester, its spine so cracked the pages were starting to separate. She read it the way other girls read Scripture. I understood that impulse.
 
-By October the three of us were inseparable in the way that only teenage girls can be inseparable, as if the friendship itself were a country we had founded and would defend with our lives. We ate lunch together on the bench near the chapel garden, trading halves of sandwiches and complaining about the same teachers with the reverence of soldiers cursing their commanding officers. We passed notes folded into elaborate origami shapes, triangles and stars and once a tiny paper crane that Megan made during a study hall on the Eucharist. We had a language. A frequency more than a code. Inside jokes that had compressed over so many repetitions they were now single words, sounds, a raised eyebrow that could contain an entire conversation.
+By October the three of us were inseparable in the way that only teenage girls can be inseparable, as if the friendship itself were a country we had founded and would defend with our lives. We ate lunch together on the bench near the chapel garden, trading halves of sandwiches and complaining about the same teachers with the reverence of soldiers cursing their commanding officers. We passed notes folded into elaborate origami shapes, triangles and stars and once a tiny paper crane that Megan made during a study hall on the Eucharist. We had a language.
 
 "Parrot" meant Sister Mary Catherine was watching.
 
@@ -63,9 +63,9 @@ I wanted to tell them things. About Mark. About the propeller and the hospital a
 
 But I didn't.
 
-What I did instead was lean my head against Megan's bedframe and close my eyes and listen to them breathe. And that was enough. Proximity was its own confession. We did not need to name the damage to know it was there.
+What I did instead was lean my head against Megan's bedframe and close my eyes and listen to them breathe. And that was enough. We did not need to name the damage to know it was there.
 
-At night, after my mother's house went quiet, I lay in bed with the Blackberry under my pillow, its green light pulsing softly against the pillowcase. A small heartbeat. A proof of connection. Megan or Caroline or both of them out there somewhere in the dark, awake or asleep, existing. The phone was a tether, a thin wire strung between my bed and theirs, and as long as that light pulsed, I was not alone in the particular way that terrified me most.
+At night, after my mother's house went quiet, I lay in bed with the Blackberry under my pillow, its green light pulsing softly against the pillowcase. Megan or Caroline or both of them out there somewhere in the dark, awake or asleep, existing. The phone was a tether, a thin wire strung between my bed and theirs, and as long as that light pulsed, I was not alone in the particular way that terrified me most.
 
 Sometimes a message would come through at eleven, twelve, one in the morning. Never anything important.
 
@@ -81,7 +81,7 @@ There were things I noticed and did not name. The way Megan's hand sometimes res
 
 I did not think about this. I thought around it, the way you walk around a hole in the floor. Aware. Careful. Not ready.
 
-The uniform helped. When everyone looks the same, desire has nowhere to attach. Or it attaches everywhere, diffused and ambient, a low hum beneath the plaid and the prayers and the Hail Marys. You could love a girl in a way the school had no language for, and the school's silence on the subject functioned as both prohibition and permission. What goes unnamed goes unpoliced.
+The uniform helped. When everyone looks the same, desire has nowhere to attach. Or it attaches everywhere, diffused and ambient, a low hum beneath the plaid and the prayers and the Hail Marys. You could love a girl in a way the school had no language for, and the school's silence on the subject functioned as both prohibition and permission.
 
 I loved Megan and Caroline the way you love the only country you have ever known.
 

@@ -3,7 +3,7 @@
 
 There is a chair in the third row, on the left side, with a single white ranunculus laid across the seat.
 
-No one is sitting in it. No one will. The flower rests there the way a hand rests on a table when the person across from you has nothing left to say. I placed it this morning while the coordinator was busy arguing with the caterers about napkin folds, while the string players tuned their instruments in the shade of the oak tree, while the world continued assembling itself into a wedding around something it could not see. The flower is small. The chair is not. The chair is not small.
+No one is sitting in it. No one will. The flower rests there the way a hand rests on a table when the person across from you has nothing left to say. I placed it this morning while the coordinator was busy arguing with the caterers about napkin folds, while the string players tuned their instruments in the shade of the oak tree, while the world continued assembling itself into a wedding around something it could not see. The flower is small.
 
 I adjust the stem so it sits centered on the wooden seat. Then I adjust it again.
 
@@ -67,7 +67,7 @@ His moods swung wider. The blue periods came first, days when the light in the h
 
 Then the crashes. Days when he did not come out of the bedroom. The door closed, the blinds drawn, the television murmuring at a volume too low to hear but too present to ignore. My sister and I moved through the house like we were walking on a frozen lake, testing each step before committing our weight.
 
-I started picking my outfits the night before. Laying them out on my desk chair with the shoes underneath, everything decided and arranged before I went to sleep. A plaid skirt and white button-down for school. My denim jacket with the enamel pins on the collar if it was cold. The braid, always the braid. Each piece selected with a precision that had nothing to do with vanity and everything to do with architecture. If I could control what I looked like when I left the house, then at least one thing about my morning would be predictable. The outfit was a blueprint for a self that could walk through the door intact. A girl in a plaid skirt is a girl with a plan. A girl with a plan is a girl who might survive the day.
+I started picking my outfits the night before. Laying them out on my desk chair with the shoes underneath, everything decided and arranged before I went to sleep. A plaid skirt and white button-down for school. My denim jacket with the enamel pins on the collar if it was cold. The braid, always the braid.
 
 ---
 
@@ -131,8 +131,6 @@ I stopped the list in April. Not because things got better. Because I ran out of
 
 ---
 
-There is a theory in philosophy that language creates reality. That the things we name become real and the things we refuse to name remain in a kind of limbo, present but without shape. I did not know this at thirteen. But I knew the feeling of it. The feeling of living inside something that no one would call by its name.
-
 He's going through a rough patch.
 
 He just needs to get it together.
@@ -143,7 +141,7 @@ We said these things to each other and to ourselves and to the neighbors and to 
 
 And the truth, which we all knew and none of us said, was that Mark was disappearing.
 
-Not all at once. Not the way people disappear in movies, dramatically, with a door slamming or a car peeling out of a driveway. He disappeared the way a photograph fades if you leave it in the sun. Slowly. In degrees. The color draining out of him until what remained was the outline of a person, still present, still occupying space, but no longer fully there.
+Not all at once. Not the way people disappear in movies, dramatically, with a door slamming or a car peeling out of a driveway. He disappeared the way a photograph fades if you leave it in the sun. Slowly. In degrees.
 
 I was thirteen years old, and I knew something terrible was coming the way you know a storm is coming. Not because anyone told you. Because the air changes.
 

@@ -81,13 +81,11 @@ Sometimes people grew apart.
 
 They both loved us very much.
 
-At five years old I did not understand the mechanics of any of this. I did not understand legal separation or custody arrangements or the quiet negotiations adults conduct when something breaks. What I understood was the feeling that something stable had suddenly shifted beneath us, like the ground itself had moved and no one would admit it.
-
 My sister started crying almost immediately, her small fists pulling at the hem of her pink T-shirt. Loud, uncontrolled sobs that filled the kitchen and bounced off the tile floor.
 
 I did not cry.
 
-I just sat there, staring at the sunlight on the table, while something inside me grew very calm. Not peace. Something harder than that. A stillness that had weight to it, that pressed down and held everything in place.
+I just sat there, staring at the sunlight on the table.
 
 ---
 
@@ -97,15 +95,15 @@ I am standing in a hotel room on my wedding day, and the dress is waiting.
 
 My phone buzzes. My sister: *Bringing coffee. Don't start panicking without me.*
 
-I almost smile. She has always had a talent for arriving exactly when the silence becomes unbearable, as though she can hear it through walls. She became an esthetician, someone who spends her days helping strangers feel comfortable in their own skin. I studied philosophy. Two daughters of the same collapse, building completely different lives from the same wreckage. She chose hands and skin and the tangible world, the kind of work where you fix what is in front of you and move on. I chose Hegel.
+I almost smile. She has always had a talent for arriving exactly when the silence becomes unbearable, as though she can hear it through walls. She became an esthetician, someone who spends her days helping strangers feel comfortable in their own skin. I studied philosophy. Two daughters of the same collapse, building completely different lives from the same wreckage. She chose hands and skin and the tangible world, the kind of work where you fix what is in front of you and move on. I chose philosophy.
 
-I found him in a sophomore philosophy seminar. Georg Wilhelm Friedrich Hegel, who believed that history moved forward through contradiction. Thesis, antithesis, synthesis. I sat in a lecture hall with fluorescent lighting and a professor whose tweed jacket had leather patches on the elbows, and I thought: that is my entire life.
+I found it in a sophomore seminar. A professor with leather patches on his elbows and a theory about contradiction, about how everything that falls apart is just the middle of a longer story. I sat under fluorescent lights and thought: I could call my life a case study, but honestly it might just be that I'm sad.
 
 The theory was elegant. The reality was a kitchen table and a five-year-old trying to understand why her parents' faces looked like that.
 
 The sun has risen now, turning the thin hotel curtains a pale, glowing yellow. I walk to the window and crack it open. Cool air spills in. The smell of earth and dried leaves. Northern California mornings have this strange softness to them, the light diffused, almost forgiving. It reminds me of childhood mornings before school, when the world briefly felt calm before the day began rearranging itself into something more complicated.
 
-Below, the vineyard stretches out across the hillside, rows of vines lined in careful geometry, still heavy with dew. A few workers drift between the rows in small electric carts, their shapes moving slowly through the low fog like figures in a painting someone has not quite finished. At the far edge of the property, a stone barn with a collapsed cupola leans slightly to the east, its roof patched with corrugated tin that has oxidized to a pale green. A weathervane in the shape of a rooster sits at an angle on the surviving ridge beam, pointing permanently southwest, frozen in a direction no wind chose.
+Below, the vineyard stretches out across the hillside, rows of vines lined in careful geometry, still heavy with dew. A few workers drift between the rows in small electric carts, their shapes moving slowly through the low fog like figures in a painting someone has not quite finished. At the far edge of the property, a stone barn leans slightly to the east. A weathervane in the shape of a rooster sits at an angle on its ridge beam, pointing permanently southwest, frozen in a direction no wind chose.
 
 A red-tailed hawk circles above the vineyard in slow, patient arcs, riding thermals that rise off the hillside as the morning warms. It makes no sound. Just the wide, deliberate turning.
 
@@ -115,7 +113,7 @@ The wedding is already assembling itself. Tables, flowers, chairs. All the small
 
 My phone lights up. Messages from friends, bridesmaids, distant relatives already arriving at the venue. Someone has sent a photo of the reception space. Rows of long wooden tables beneath white canvas tents. Glass jars filled with dried flowers. Pale blue napkins folded into careful triangles.
 
-It looks beautiful in the way wedding spaces always look beautiful before people arrive to fill them with their histories.
+It looks beautiful.
 
 Another message, from Will, sent at 6:14 a.m.: *Couldn't sleep. There's a rooster on the next property that has opinions about the morning. Saved you the good coffee. The fog is doing something out here you'd like.*
 

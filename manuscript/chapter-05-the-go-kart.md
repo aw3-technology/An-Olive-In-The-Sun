@@ -11,7 +11,7 @@ The laughter catches somewhere between my chest and my throat, and I am eleven y
 
 Mark drove a go-kart down Highway 101 and got arrested.
 
-I need to say that again because the sentence does not become less absurd with repetition. My stepfather, a grown man, a man with a mortgage and a driver's license and a wife and two stepdaughters, got on a go-kart. A go-kart. The kind with a plastic seat and a lawn mower engine that tops out at thirty miles an hour if you lean forward. He drove it onto the 101 freeway, merged into traffic between an eighteen-wheeler and a Volvo station wagon, and made it nearly four miles before the California Highway Patrol pulled him over.
+I need to say that again because the sentence does not become less absurd with repetition. My stepfather, a grown man, a man with a mortgage and a driver's license and a wife and two stepdaughters, got on a go-kart. A go-kart. He drove it onto the 101 freeway, merged into traffic between an eighteen-wheeler and a Volvo station wagon, and made it nearly four miles before the California Highway Patrol pulled him over.
 
 I do not know what he was thinking. I am not sure he was thinking. That was the thing about Mark. It arrived fully formed, like weather. One moment, a Tuesday. The next, a man on a go-kart doing twenty-eight in the slow lane of a major freeway while semis honked and swerved around him.
 
@@ -21,13 +21,11 @@ The go-kart belonged to a neighbor's kid. I don't remember the kid's name. Tyler
 
 Everyone laughed. My mother laughed. I laughed.
 
-The thing about living with Mark was that you could never tell the difference between a joke and a plan.
-
 The day it happened was a Saturday in August. Hot, the kind of heat that makes the asphalt shimmer and the air taste like exhaust. I was inside watching television. My sister was at a friend's house. My mother was running errands, or at the grocery store, or somewhere else entirely, because that was the choreography of our household: Mark alone with time and access and no one to interrupt the progression from boredom to beer to whatever came next.
 
 I did not see him leave. Nobody saw him leave. The neighbor's kid was at a baseball game and the go-kart sat in the driveway with the key in the ignition, because that is the kind of neighborhood we lived in. People left their garage doors open and their keys in things. It was California. It was the suburbs. Nothing bad was supposed to happen.
 
-Later, I tried to reconstruct the sequence. Mark on the couch. Mark opening a beer. Mark opening another beer. Mark walking outside to get the mail and noticing the go-kart sitting there in the driveway like an invitation written in red plastic. The gap between seeing it and sitting in it could not have been very long. With Mark, the gap between impulse and action was always dangerously thin, and alcohol dissolved what little barrier remained.
+Mark on the couch. Mark opening a beer. Mark opening another beer. Mark walking outside to get the mail and noticing the go-kart sitting there in the driveway like an invitation written in red plastic. The gap between seeing it and sitting in it could not have been very long. With Mark, the gap between impulse and action was always dangerously thin, and alcohol dissolved what little barrier remained.
 
 What I know about the ride itself comes from the police report and from Mark's own retelling, which differed in ways that were revealing. According to the CHP, he entered the freeway at the Redwood Road on-ramp, traveling approximately twenty-five miles per hour in a vehicle not registered, insured, or street-legal, without a helmet, without shoes, and without what the officer's report described as "apparent concern for his personal safety or the safety of others." Mark's version was simpler. "I just wanted to see if it could do it," he said.
 
@@ -57,7 +55,7 @@ When your household runs on chaos, you develop a grammar for it. You learn the d
 
 I laughed. I couldn't help it. The image was too perfect, too cartoonish, too exactly like something Mark would do. My mother looked at me and for a second I thought she was going to tell me it wasn't funny. Instead she pressed her lips together and her shoulders started shaking and then she was laughing too, leaning against the counter with one hand over her mouth, laughing the way you laugh when the alternative is something you cannot afford.
 
-We stood there in the kitchen laughing about a man on a go-kart on the freeway. Just the two of us, mother and daughter, sharing the only language we had for what our life had become.
+We stood there in the kitchen laughing about a man on a go-kart on the freeway.
 
 He came home two days later. Bailed out by someone, a friend or a cousin, one of the rotating cast of people in Mark's life who enabled him and then acted surprised when things went wrong. He walked through the door looking sheepish and defiant at the same time, a combination only Mark could pull off. He had a sunburn on the back of his neck from the ride. His feet were dirty.
 
@@ -67,15 +65,13 @@ And this is the part I cannot explain to people who did not grow up in a house l
 
 My sister laughed until she cried. My mother shook her head and said, "You're unbelievable." But she was smiling. Even she was smiling.
 
-Mark had this quality. A magnetism that made you forget, temporarily, that the thing making you laugh was also the thing that was destroying your family. He could walk into a room and change its temperature. He remembered every birthday, told the best jokes at barbecues, taught me to throw a spiral in the backyard when my father forgot to show up for his weekend. There were Sundays when he made pancakes in the shape of animals and my sister and I sat at the counter in our pajamas arguing about whether the lumpy one was a horse or a dog, and those mornings were real. They were genuinely good. That is the thing nobody tells you about people who are falling apart. They are still people. They still make pancakes.
+Mark had this quality. A magnetism that made you forget, temporarily, that the thing making you laugh was also the thing that was destroying your family. He taught me to throw a spiral in the backyard when my father forgot to show up for his weekend. There were Sundays when he made pancakes in the shape of animals and my sister and I sat at the counter in our pajamas arguing about whether the lumpy one was a horse or a dog, and those mornings were real. They were genuinely good. They are still people. They still make pancakes.
 
-His charm operated like a solvent. It dissolved the fear, the anger, the exhaustion of living with someone who could not be predicted. You would be furious with him, genuinely furious, and then he would say something so perfectly absurd that the fury just evaporated and you were left standing there with nothing in your hands.
+His charm operated like a solvent. You would be furious with him, genuinely furious, and then he would say something so perfectly absurd that the fury just evaporated and you were left standing there with nothing in your hands.
 
 The neighbors found out, of course. Within days the whole street knew. Mark became briefly legendary. People brought it up at block parties, at the mailbox, at the gas station. "Hey, heard you took the freeway." They said it with a mixture of horror and admiration that I now recognize as the specific way comfortable people respond to dysfunction. It is interesting to them. A good story. Something to tell their own friends at dinner.
 
 Nobody asked if we were okay.
-
-Nobody asked my mother if she needed help, or if maybe a man who steals a child's go-kart and drives it drunk onto a freeway might not be someone you want living in a house with two young girls. The story was too entertaining. It sanded down the edges of what was actually happening. By the time it made it around the neighborhood, it was a comedy, not a cry for help.
 
 My mother told the go-kart story for years. She told it at Thanksgiving. She told it to coworkers. She told it with a shake of her head and a half-smile that said, *Can you believe it?* And people laughed, and she laughed, and somewhere inside the laughter was everything she could not say.
 

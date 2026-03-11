@@ -21,7 +21,7 @@ So I stood in the hallway of a public school in an outfit I had assembled that m
 
 I knew within thirty seconds that I had gotten it wrong. Not catastrophically. Just enough. The jeans were the wrong wash. The top was a season behind. The Vans were fine but everyone here wore Etnies, a brand I had never heard of, and the difference between Vans and Etnies was apparently the difference between understanding something and understanding nothing.
 
-A girl with straightened hair and a Juicy Couture hoodie looked at me, then looked away, and in that single motion communicated a verdict so complete it did not require a word.
+A girl with straightened hair and a Juicy Couture hoodie looked at me, then looked away.
 
 The cafeteria was worse. I stood in the doorway holding a brown paper lunch bag my mother had packed, which marked me as someone whose mother still packed lunches, which marked me as someone who did not yet know that buying a soft pretzel from the snack bar was the minimum price of social viability. The room was enormous. Round tables, not long ones, and the seating was a language I could not read. Who sat where and why. Which table was the theater kids, which was the athletes, which was the cluster of boys in oversized hoodies who watched everyone else with the performative boredom of people who had decided, at fifteen, that nothing was worth their enthusiasm.
 
@@ -51,21 +51,17 @@ The growing certainty, settling into my body like weather, was this: I would nev
 
 My bedroom was the only room that stayed.
 
-Not the same bedroom. The furniture changed, the addresses changed, the view from the window changed. But the interior remained mine. I rebuilt it every time, the way some people rebuild temples after a flood. The same objects, the same arrangement, the same careful architecture of identity reassembled on whatever new floor I was given.
+Not the same bedroom. The furniture changed, the addresses changed, the view from the window changed. But I rebuilt it every time, the way some people rebuild temples after a flood. The same objects, the same arrangement, reassembled on whatever new floor I was given.
 
 Converse by the door, laces untied. Magazine clippings on the wall: pages torn from Nylon and SPIN and a Delia's catalogue I kept for the aesthetic, not the clothes. Band posters held up with thumbtacks that left constellations of small holes wherever we went. Dried flowers in a mason jar on the dresser, lavender and baby's breath I bought at a farmers market and kept long past the point when they crumbled at the stem. A candle on the nightstand, sometimes two. Vanilla, always vanilla, because the smell was the first thing I controlled in any new space, and vanilla smelled like a decision I had made.
 
 Brand New through the speakers. Deja Entendu on repeat, the astronaut floating alone on the cover, untethered and calm. I lay on my bed and listened to Jesse Lacey sing about the things he could not fix, and I thought: someone understands. Not me, specifically. But the frequency. The particular hum of being young and sad and unable to explain why the sadness felt so much bigger than your life warranted.
 
-Rilo Kiley for the nights when Jenny Lewis made loneliness sound like something you could study rather than something that studied you. The Decemberists for pretending I was somewhere else entirely, somewhere with shipwrecks and lanterns and a vocabulary that had nothing to do with cafeterias or custody arrangements.
-
 The Jetta came later. Used, silver, a dent in the passenger door from a parking lot I never identified. I covered the bumper in stickers: bands, a peace sign, a quote I cannot remember now but believed at the time was the most important sentence ever written. I smoked Parliaments with the windows down, the recessed filter between my fingers like I'd seen it done in movies, the smoke curling out into whatever suburb I was driving through. The car smelled like cigarettes and vanilla air freshener and the particular staleness of a vehicle that served as a living room, a confessional, and an escape pod.
 
 I started wearing only Converse and Vans. Band tees I found at thrift stores. Lace and satin layered over cotton, the beginnings of an aesthetic I would spend years refining: shabby and deliberate, pretty and damaged, soft things worn until they frayed. My clothes were the only constant. I could walk into any school wearing the same Converse and feel, underneath the wrong jeans and the wrong references, that I was still the same person. Whoever that was.
 
-Facebook arrived like a second life. I created a profile the way a novelist creates a character: selectively, strategically, assembling the version of myself I wanted to exist. The profile photo angled just right. The interests curated. The wall posts calibrated to suggest a person who was thoughtful and a little dark and listening to better music than you. I posted Brand New lyrics as my status. Lines about sinking and quiet houses and the weight of things unspoken. Coded transmissions, broadcast to no one in particular, hoping someone would hear the frequency and respond.
-
-No one did. Or they did, but only with a like, a thumbs-up, the digital equivalent of a nod across a crowded room from someone who recognized the song but not the cry inside it.
+Facebook arrived like a second life. I created a profile the way a novelist creates a character: selectively, strategically, assembling the version of myself I wanted to exist. The profile photo angled just right. The interests curated. The wall posts calibrated to suggest a person who was thoughtful and a little dark and listening to better music than you. I posted Brand New lyrics as my status. Lines about sinking and quiet houses and the weight of things unspoken. Coded transmissions, broadcast to no one in particular.
 
 I scrolled through other people's profiles late at night, studying the evidence of their lives: group photos at football games, inside jokes in comment threads, albums titled "BEST FRIENDS FOREVER" in all capitals. The documentation of belonging. I had nothing to document. My photo albums were empty or curated to suggest a life more populated than it was. A picture of the Jetta at sunset. A close-up of my Converse on a curb. The aesthetic of solitude repackaged as taste.
 
@@ -77,8 +73,6 @@ The woman in the green dress is finishing her reunion story. Her husband refills
 
 I smile. A small, polite smile, the kind I have been practicing since the first cafeteria, the first new hallway, the first morning of standing in a doorway and calculating where to sit. A smile I have been practicing since the first cafeteria.
 
-Through a window, I catch a glimpse of Will across the venue, leaning against a doorframe, talking to his best man. He went to one school. K through 12, the same brick building, the same friends, the same lunch table for thirteen years. He describes his childhood the way the woman in green describes her reunion: warmly, simply, without the awareness that what he is describing is extraordinary. He does not know what it cost me to get here.
-
-The woman laughs at something her husband says. I reach for a champagne glass on the table. The bubbles rise in thin columns, small and persistent, each one arriving at the surface and vanishing the instant it gets there.
+Through a window, I catch a glimpse of Will across the venue, leaning against a doorframe, talking to his best man. He went to one school. K through 12, the same brick building, the same friends, the same lunch table for thirteen years. He describes his childhood the way the woman in green describes her reunion: warmly, simply, without the awareness that what he is describing is extraordinary. The woman laughs at something her husband says. I reach for a champagne glass on the table. The bubbles rise in thin columns, small and persistent, each one arriving at the surface and vanishing the instant it gets there.
 
 I have been arriving somewhere new my entire life. The only thing I ever brought with me was the ability to leave.

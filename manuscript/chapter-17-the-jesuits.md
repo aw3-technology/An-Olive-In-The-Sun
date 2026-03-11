@@ -19,11 +19,11 @@ Mark had been dead for three months.
 
 The word "dead" was still new. I used it carefully, the way you use a knife you are not sure is sharp: testing the edge, pulling back, testing again. My mother had driven me to campus in silence, the kind of silence that is not empty but full, pressurized, holding back everything that would flood the car if either of us opened our mouths. She helped me carry the suitcases to my room. She made the bed with the sheets she had bought at Target the week before, smoothing the corners with the same hands that had smoothed Mark's collar at the funeral, and when she was done she stood in the doorway and said, "Call me if you need anything." Then she left. The door closed behind her with a click that sounded, to me, like the period at the end of a very long sentence.
 
-The campus was beautiful in the way that institutions are beautiful when they have enough money and enough history to make beauty look inevitable. Old stone buildings, arched doorways, courtyards with benches under live oaks. Crucifixes everywhere. Small ones above doorframes, large ones in the chapel, medium-sized ones in lecture halls, positioned above the chalkboard like punctuation. The Jesuits wore collars and walked the paths between buildings with a particular kind of purpose, unhurried but deliberate, men who had organized their entire lives around a single question and seemed, from the outside, to have answered it.
+The campus was beautiful in the way that institutions are beautiful when they have enough money and enough history to make beauty look inevitable. Old stone buildings, arched doorways, courtyards with benches under live oaks. Crucifixes above every doorframe. The Jesuits wore collars and walked the paths between buildings with a particular kind of purpose, unhurried but deliberate, men who had organized their entire lives around a single question and seemed, from the outside, to have answered it.
 
 I envied that. The certainty. The collar that said: I know what I am for.
 
-I did not know what I was for. I knew that my stepfather had killed himself in the spring and that my mother drank more than she admitted and that I had spent the summer in a house so quiet it hummed. I knew that my hands shook when I tried to write and that my brain would not stop running its simulations: what if I had called him that week. What if I had noticed. What if I had been enough. I knew that I had chosen this school because it was Catholic and my mother was Catholic and I wanted, with a desperation I could not have articulated, to believe that someone somewhere was in control. That the chaos had a plan behind it. That the suffering was a corridor leading somewhere and not just a room with no doors.
+I did not know what I was for. I knew that my stepfather had killed himself in the spring and that my mother drank more than she admitted and that I had spent the summer in a house so quiet it hummed. I knew that my hands shook when I tried to write and that my brain would not stop running its simulations: what if I had called him that week. What if I had noticed. What if I had been enough. I knew that I had chosen this school because it was Catholic and my mother was Catholic.
 
 The Jesuits had a motto: *Men and women for others.* It was printed on banners, carved into stone, repeated in orientation speeches by smiling administrators who shook your hand and looked you in the eye and radiated a competence that felt almost medicinal. The motto simultaneously inspired and suffocated me. For others. I could barely hold myself together. The idea that I should also be holding together others felt like asking a drowning person to teach a swimming class.
 
@@ -43,7 +43,7 @@ There was a chapel on campus, small, stone, always cool inside. I went there som
 
 Where were you when Mark put his hand in the propeller. Where were you when my mother poured her third glass of wine on a Sunday night and pretended it was her second. Where were you when I drove us to the hospital at eleven years old with blood on the dashboard and no license and the absolute certainty that adults could not be trusted to keep themselves alive. Where were you when he died.
 
-The theology class had answers for this. Free will. The mystery of suffering. The idea that God's plan operated on a scale too large for any individual to comprehend, the way a single thread cannot see the tapestry. I understood the argument intellectually. I could diagram it on a quiz. I got an A. The A meant nothing. The A was the sound of a door locking behind an empty room.
+The theology class had answers for this. Free will. The mystery of suffering. The idea that God's plan operated on a scale too large for any individual to comprehend, the way a single thread cannot see the tapestry. I understood the argument intellectually. I could diagram it on a quiz. I got an A. I closed the grade portal and stared at the crucifix above the door until the shape blurred.
 
 ---
 
@@ -65,31 +65,29 @@ I put the book down and stared at the wall. The ordinary dorm-room wall with its
 
 ---
 
-The intellectual awakening, when it came, was the first genuine joy I had felt since Mark died. I need to say that clearly because what follows might make it sound like I am dismissing it, and I am not. The joy was real. The discovery that there were people who had spent their entire lives asking the questions I had been asking alone in my bedroom at three in the morning, people who had turned those questions into systems of thought, into philosophies, into traditions of inquiry that stretched back thousands of years. I was not alone in my doubting. I was not broken for asking. There was a lineage, and I could join it.
+The intellectual awakening was the first genuine joy I had felt since Mark died. The discovery that there were people who had spent their entire lives asking the questions I had been asking alone in my bedroom at three in the morning, people who had turned those questions into traditions of inquiry that stretched back thousands of years. There was a lineage, and I could join it.
 
-I read everything Dr. Linden assigned and then read beyond the assignment. Plato, Aristotle, Hume, Kant. I read them the way my mother drank wine: urgently, without pausing, filling a need that had been empty for so long I had forgotten it was a need. The library became my church. The reading room on the second floor, with its oak tables and green-shaded lamps and the particular silence that old buildings hold. I sat there for hours. I underlined sentences that felt like being seen.
+I read everything Dr. Linden assigned and then read beyond the assignment. I read the way my mother drank wine: urgently, without pausing, filling a need that had been empty for so long I had forgotten it was a need. The library became my church. The reading room on the second floor, with its oak tables and green-shaded lamps and the particular silence that old buildings hold. I sat there for hours. I underlined sentences that felt like being seen.
 
 Then I found Hegel.
 
-The dialectic. Thesis, antithesis, synthesis. The idea that history, and thought, and maybe everything, moved forward not through harmony but through contradiction. That opposing forces collided, and from the wreckage something new emerged. That destruction was not the end of the story. It was the middle.
+The idea that history moved forward not through harmony but through contradiction. That opposing forces collided, and from the wreckage something new emerged. That destruction was not the end of the story. It was the middle.
 
-I sat in a lecture hall and listened to a professor explain that progress required conflict, that understanding required passing through its opposite first, and I thought: my life is practically a case study. Thesis: a stable family. Antithesis: divorce, chaos, addiction, a man with his hand in a propeller, a man in a closed room with a gun. Synthesis: I did not know yet. But the fact that there could be a synthesis, that the contradiction was not the final word, that something might emerge from the collision of all that had been destroyed, this was the closest I had come to believing in anything since I stopped believing in God.
+I sat in a lecture hall and thought: my life is practically a case study. A stable family. Then divorce, chaos, addiction, a man with his hand in a propeller, a man in a closed room with a gun. And after all of it, something. I did not know what yet. But the fact that the destruction might not be the final word was the closest I had come to believing in anything since I stopped believing in God.
 
-The philosophy did what the theology could not. It did not ask me to trust a plan I could not see. It asked me to look at the wreckage and find the structure in it. It met me where I was: in the rubble, in the questioning, in the relentless need to understand why. Theology said: trust. Philosophy said: think. And thinking was the one thing I had always been able to do, even at my worst, even at three in the morning with my jaw clenched and my brain running its catastrophes. Thinking was the engine that never stopped. Philosophy gave it something to do besides destroy me.
+Philosophy gave the engine something to do besides destroy me.
 
 ---
 
-It was also a defense mechanism. I can see that now. I could almost see it then.
-
 Because the thing about intellectualizing your pain is that it works the same way the first drink worked at fifteen: it creates distance. It takes the raw, stupid, animal grief of being a person whose stepfather killed himself, whose mother couldn't stop drinking, whose family collapsed and reformed and collapsed again, and it gives you a frame to hang it in. And the frame is beautiful, and the frame is useful, and the frame lets you stand in a gallery looking at your own suffering instead of standing inside it.
 
-I sat in Dr. Linden's office during office hours and talked about Hegel's concept of Aufhebung, the word that means both to cancel and to preserve, to destroy and to lift up. I talked about it with the same intensity I had once brought to counting ceiling tiles: completely, obsessively, as though the concept itself could save me if I just understood it thoroughly enough. She listened. She nodded. She asked questions that sharpened my thinking. She did not ask about my family or my grief or the reason I had circles under my eyes that no amount of sleep could erase. She was a philosophy professor, not a therapist, and the distinction was both the gift and the limitation.
+I sat in Dr. Linden's office during office hours and talked about the concept that meant both to cancel and to preserve, to destroy and to lift up. I talked about it with the same intensity I had once brought to counting ceiling tiles: completely, obsessively, as though the idea itself could save me if I just understood it thoroughly enough. She asked questions that sharpened my thinking. She did not ask about my family or my grief or the reason I had circles under my eyes that no amount of sleep could erase. She was a philosophy professor, not a therapist, and the distinction was both the gift and the limitation.
 
-I could diagram my entire childhood on a chalkboard. I could map the dialectic of my mother's marriages: thesis, a first husband who drifted away; antithesis, a second husband who destroyed himself. I could trace the contradictions with a piece of chalk and stand back and admire the pattern and never once have to feel the thing the pattern described.
+I could diagram my entire childhood on a chalkboard. I could map my mother's marriages: a first husband who drifted away, a second who destroyed himself. I could trace the contradictions with chalk and stand back and admire the pattern and never once have to feel the thing the pattern described.
 
 I could call this a dialectic, but honestly it might just be that I was sad and I didn't want to say so.
 
-The joy was real. I need to keep saying that. The defense mechanism was also real. Both of these things occupied the same space in the same body during the same years, and neither cancelled the other out. Hegel would have understood this, probably. The coexistence of contradiction. The refusal of things to be one thing at a time.
+The joy was real. The defense mechanism was also real. Both of these things occupied the same space in the same body during the same years, and neither cancelled the other out.
 
 ---
 
@@ -108,8 +106,6 @@ I walked outside. The sun was white and flat against the courtyard. In my earbud
 Below the campus, in the field that sloped toward the highway, two horses stood at the fence line. They were not remarkable horses. Brown, mid-sized, probably belonging to the property next door. But I watched them for a long time, the way they stood together without urgency, the way one would lower its head to graze and the other would shift its weight to stay close. Not performing closeness. Just close. I thought about the horse book I had loved as a child, the wild pony and the girl who learned to hold still. Horses only came to you if you proved you would not grab. The animal had to choose the contact. Maybe faith worked that way too. Maybe the Jesuits had it backward. You do not seek the sacred. You hold still and let it approach. Or it does not approach, and you learn to stand in the field anyway.
 
 The threshold was behind me. Not a door I had walked through but one I had walked away from. I did not lose my faith that afternoon. I had not had enough faith to lose. What I lost was the expectation that faith would be given to me, that it would arrive like a gift, that the institution would hand me the thing I needed if I just sat in the right room long enough and listened hard enough and wanted it badly enough.
-
-It would not. Some things you have to build yourself. From whatever materials are lying around in the wreckage.
 
 ---
 

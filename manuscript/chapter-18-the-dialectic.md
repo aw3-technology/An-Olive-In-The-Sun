@@ -39,7 +39,7 @@ The professor drew an arrow on the board. From THESIS down to ANTITHESIS.
 
 "This is where it gets difficult." He tapped the space between the words. Something about negation, about the antithesis revealing what the thesis had been hiding. Then a phrase I have never let go of: the contradiction that was always already there.
 
-I remember the sentence landing in my chest the way a key lands in a lock. Not because I understood Hegel. I did not understand Hegel. I still do not understand Hegel, not really, not the way the professor did, with his library of German editions and his careful distinctions between Aufhebung and simple negation. I understood the shape of it. The architecture. The idea that something could fall apart and that the falling apart was not the end of the story but the middle.
+I remember the sentence landing in my chest the way a key lands in a lock. Not because I understood Hegel. I did not understand Hegel. I still do not understand Hegel, not really, not the way the professor did, with his library of German editions and his careful distinctions between Aufhebung and simple negation.
 
 Thesis: my parents loved each other. They married young, in a church, in front of their families, with vows that contained the word forever. I was born into that forever. It was the floor I stood on. The first five years of my life were built on the assumption that the people in the kitchen making breakfast would always be there, together, making breakfast.
 
@@ -57,7 +57,7 @@ The professor said history moved forward through contradiction. Through struggle
 
 I laughed, alone, in that classroom. Not out loud. A small exhale through the nose, the kind of private amusement that comes from recognizing your own absurdity. The girl in the third row, counting ceiling tiles last year, is now sitting in a philosophy seminar mapping her family's destruction onto a nineteenth-century German framework and finding it funny. Progress.
 
-Or maybe not progress. Maybe just a new room in the same building. A better view of the same wreckage. I could diagram my entire childhood on that chalkboard, label every phase with a German term the professor would approve of, and I would still be a girl who needed the light from the window to stay inside her own skin.
+Or maybe not progress. Maybe just a new room in the same building. A better view of the same wreckage. I would still be a girl who needed the light from the window to stay inside her own skin.
 
 I unfold the vows again. The sunlight through the bathroom window has shifted, falling now across my hands, and for a moment I am in both rooms at once: the girl in the seminar with the secondhand light on her notebook, and the woman in the bathroom with the afternoon sun on her knuckles, and the distance between them is fourteen years and no distance at all.
 
@@ -75,21 +75,15 @@ I wrote that down. I still have the notebook.
 
 Here is what I have made from the wreckage.
 
-I spent a semester learning to diagram suffering. It did not make it hurt less. It just made me better at describing the shape of the thing that was crushing me. I could draw my childhood on a chalkboard: the stable starting point, the long collapse, the tentative reconstruction. I could label each phase. I could cite the relevant thinker. And none of it, not one word of it, changed the fact that I was twenty years old and sometimes I still checked the lock three times before bed and sometimes I lay awake counting my own heartbeats because the alternative was lying awake counting the ways everyone I loved could die.
+I spent a semester learning to diagram suffering. It did not make it hurt less. None of it changed the fact that I was twenty years old and sometimes I still checked the lock three times before bed and sometimes I lay awake counting my own heartbeats because the alternative was lying awake counting the ways everyone I loved could die.
 
 I could call my life a dialectic. I could also just call it hard.
-
-The honesty of that sits beside the philosophy, and neither cancels the other out.
 
 *You are the first person*, my vows say, *who made me believe that love could survive knowing the truth about me.*
 
 The sun through the bathroom window is the same sun that came through the classroom window when the professor asked us a question I have never stopped answering. He leaned against the chalkboard, arms crossed, chalk dust on his sleeve, and said: "What does it mean if the worst thing that happened to you is also the condition for whatever comes next?"
 
 The room was quiet. We were nineteen, twenty. We did not know what the worst thing was yet. Some of us did. I did. I sat by the window with the soft light on my notebook and I knew exactly what the worst thing was, and I knew he was right, and I hated that he was right, because it meant the pain was not pointless, which should have been a comfort and instead felt like a betrayal. If the suffering served a purpose, did that mean it was acceptable? Did it mean I should be grateful? The thought made me sick.
-
-No.
-
-The professor was not saying the suffering was good. He was saying the suffering was material. That it could be used. That the person who walks out of the wreckage carrying something is not the same person who walked in, and that difference, that specific and unrepeatable transformation, is the synthesis. Not redemption. Not justification. Just the fact of change, witnessed and named.
 
 I fold the vows one last time. The paper is warm from my hands and the sun. Through the bathroom door I can hear voices, the low hum of people arranging themselves for what comes next. Someone laughs. A cork pops. The ordinary sounds of a life assembling itself around a ceremony.
 
@@ -103,11 +97,11 @@ They contain the word choose. Seven times.
 
 I counted.
 
-In the seminar, after the lecture, I walked back across campus with my bag over my shoulder and the October light falling through the live oaks in long yellow sheets. The air smelled like dry grass and eucalyptus, the particular scent of Northern California in autumn, which is the smell of things that thrive in fire country. I was thinking about thesis and antithesis and synthesis, and I was also thinking about dinner, and I was also pressing my thumbnail into my index finger in sets of four, because the intellectual breakthrough had not actually cured anything. That is the thing about frameworks. They organize the mess. They do not clean it up.
+In the seminar, after the lecture, I walked back across campus with my bag over my shoulder and the October light falling through the live oaks in long yellow sheets. The air smelled like dry grass and eucalyptus, the particular scent of Northern California in autumn, which is the smell of things that thrive in fire country. I was thinking about the lecture, and I was also thinking about dinner, and I was also pressing my thumbnail into my index finger in sets of four, because the intellectual breakthrough had not actually cured anything. Frameworks organize the mess. They do not clean it up.
 
-But something had shifted. Not healed. Shifted. The way a bone that has been set begins to knit, invisibly, beneath the cast. I could not feel the repair happening. I could only sense that the weight I carried had changed shape, as though someone had taken the same bricks and arranged them into a different structure. The load was identical. The architecture was new.
+But something had shifted. Not healed. Shifted. The way a bone that has been set begins to knit, invisibly, beneath the cast. I could not feel the repair happening. I could only sense that the weight I carried had changed shape.
 
-My vows do not mention Hegel. They do not mention the dialectic. They do not contain any of the language I learned in that classroom, the precise philosophical vocabulary that gave me a way to think about contradiction without drowning in it. The vows are plain. Almost naked. They say what I mean in the simplest language I could find, because I have spent fifteen years dressing up my feelings in other people's frameworks, and today, in this room, with this piece of paper in my shaking hands, I want to say the true thing without any armor at all.
+My vows do not mention Hegel or the dialectic. They do not contain any of the vocabulary I learned in that classroom. The vows are plain. Almost naked. They say what I mean in the simplest language I could find, because I have spent fifteen years dressing up my feelings in other people's frameworks, and today, in this room, with this piece of paper in my shaking hands, I want to say the true thing without any armor at all.
 
 *I do not come from people who stayed. I come from people who loved hard and left anyway. I do not promise you forever. I do not know how to promise that.*
 

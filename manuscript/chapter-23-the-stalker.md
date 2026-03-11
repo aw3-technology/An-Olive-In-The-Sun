@@ -51,7 +51,7 @@ He showed up at the Fall Festival. A school event, open to all families. His dau
 
 "You're so young to be this good at what you do," he said. He was smiling. Open, easy, the smile of a man paying a compliment. Nothing in his face suggested he understood what he was doing. Or everything in his face suggested he understood exactly what he was doing. I could not tell. That was the worst part. The ambiguity was the weapon.
 
-I said thank you. The tax. The old, familiar tax that women pay to keep a situation from escalating. The bright coin of gratitude dropped into the meter of a man's attention so the meter doesn't run out and turn into something worse.
+I said thank you.
 
 ---
 
@@ -99,8 +99,6 @@ She set the papers down. She looked at me the way people look at you when they b
 
 He hasn't done anything yet.
 
-The sentence that is carved into the archway of every institution a woman walks through hoping for help. He hasn't done anything yet. The yet hanging in the air like a held breath, like a blade suspended, like the second before the propeller catches. The entire premise of the response is that something worse must happen before the current thing counts. That fear, by itself, is not enough. That a woman's nervous system, ringing every alarm it has, does not constitute evidence. That the building must actually be on fire before someone calls the fire department, and a woman standing outside saying *I can smell smoke* is simply a woman with a sensitive nose.
-
 I thanked her. I went back to my classroom. I taught third period. Kylie Tierney sat in the back row with her careful handwriting and turned in her essay on time. She did not know. Of course she did not know. She was sixteen and her father drove her to school and packed her lunch and she had no reason to believe that the man who helped her with her homework was the same man who waited in the parking lot.
 
 ---
@@ -135,23 +133,17 @@ I started parking in different spots. Never the same place twice in a row. I var
 
 Fear colonized my spaces the way water colonizes a basement. Slowly. Rising along the edges, finding the cracks, occupying the lowest parts first. My classroom, which had been mine, became a room he had been in. My parking lot, which had been a parking lot, became a place where his car had idled in the dark. My evening run, which had been the one hour of the day when my body felt like my body and not a thing to be managed, became a route I could not take without scanning every parked car.
 
-I started checking the lot from the window of my classroom before I left the building. I would stand at the glass, half-hidden by the doorframe, and look for the sedan the way you look for weather on the horizon. Most evenings it was not there. The absence was not relief. The absence meant only that he was somewhere else, doing something I could not see, and the not seeing was its own kind of presence. He had taught me that he could appear. The lesson was enough. I would carry it into every parking lot for the rest of my life.
+I started checking the lot from the window of my classroom before I left the building. I would stand at the glass, half-hidden by the doorframe, and look for the sedan the way you look for weather on the horizon. Most evenings it was not there. The absence was not relief. The absence meant only that he was somewhere else, doing something I could not see, and the not seeing was its own kind of presence. He had taught me that he could appear. The lesson was enough.
 
 I filed a second report in January. A third in February, after he showed up to a basketball game where I was supervising the student section. His daughter was not on the team. He stood at the far end of the bleachers, alone, and watched me for the entire first half before leaving at halftime. I documented it. I added it to the floor plan. The assistant principal made a note in his file and suggested, carefully, that I might consider whether I was reading the situation correctly.
 
-I was reading the situation correctly. I had been reading situations since I was eleven years old, standing on a dock, watching a man reach for something dangerous, my body understanding before my mind that this was going to hurt.
+I was reading the situation correctly.
 
 ---
 
-What I did with the rage is the part I find hardest to describe, because the rage was not a single feeling but a stack of them, compressed and laminated, each layer distinct.
+What I did with the rage is the part I find hardest to describe, because the rage was not a single feeling but a stack of them, compressed and laminated.
 
-There was the rage at him. Simple, clean, directed. A man who felt entitled to my attention and interpreted my professionalism as invitation and my silence as permission.
-
-Beneath that, the rage at the institution. The system that could flag a contact in the database but could not tell a man to stop coming to my school. The bureaucratic helplessness that required something worse to happen before something could be done.
-
-Beneath that, the older rage. The one that had been accumulating since a truck slowed beside a girl in a plaid skirt. The rage at the mathematics of womanhood itself, the tax, the constant background calculation of risk that ran beneath every workday, every evening run, every walk to a parking lot. The fact that being a woman in a public-facing role came with this surcharge, this invisible invoice, payable in vigilance and adrenaline and the slow erosion of spaces that were supposed to belong to you.
-
-And beneath all of it, at the very bottom, the quiet rage at having to handle it at all. At being competent at this. At knowing exactly how to document and report and vary my route and check my mirrors, because this was not my first curriculum in navigating a man's entitlement. I had been studying this subject since childhood. The Hollywood parties, the photographer's hands, the groomsman's lingering eye, the producer in the hallway, the man at the party with his hand on the wall beside my head. Greg Tierney was not the beginning. He was a continuation. A chapter in a syllabus I never signed up for and could not drop.
+There was the rage at him. Simple, clean, directed. And beneath it, the older rage, the one that had been accumulating since a truck slowed beside a girl in a plaid skirt, the constant background calculation of risk that ran beneath every workday, every evening run, every walk to a parking lot. And beneath that, at the very bottom, the quiet rage at being competent at this. At knowing exactly how to document and report and vary my route and check my mirrors, because this was not my first curriculum in navigating a man's entitlement. Greg Tierney was not the beginning. He was a continuation.
 
 I handled it. That is the sentence I always arrive at, and it is true, and the truth of it makes me angrier than anything else. I handled it the way I handled everything: with documentation, with routine, with the steady, methodical effort of a woman who had learned that the world does not stop being dangerous just because you report the danger. I told Will. I told Jess, who said she would slash his tires, which was not helpful but was exactly what I needed to hear. I told my therapist, who helped me separate the current fear from the older fears it had awakened, the cellular archive of every man who had ever made a room feel smaller by standing in it.
 
@@ -181,6 +173,6 @@ The text from Jess is warm. Dante wants to argue about Plath. The corkboard has 
 
 But the alertness is still here. It hums beneath the warmth of the text and the music and the dress and the ring on my finger, low and constant, the program that booted up when I was fourteen and has never shut down. I scan the room without deciding to. Note the exits. Register the faces. The old, involuntary inventory.
 
-The difference is that I am standing up. That is the difference between the girl in the truck, her feet barely reaching the pedals, driving a bleeding man to a hospital because no one else could, and the woman in the parking lot with the documentation and the lawyer and the restraining order and the keys between her fingers. The girl had no choice. The woman had every tool she needed and used them, imperfectly, furiously, because the world did not stop being dangerous, but she stopped being eleven.
+The difference is that I am standing up.
 
 I smooth the front of my dress. I walk toward my husband. The room holds me, and I let it.

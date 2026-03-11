@@ -79,7 +79,7 @@ I wanted to play for him. That was the whole point. I wanted to walk into his ap
 
 He never asked to hear me play. I waited for three months. I carried the guitar to his apartment twice. It leaned against the wall in my room next to his server rack, and he walked past it, and I waited, and he did not ask. He was not ignoring it. He simply did not notice it the way he did not notice the mismatched sheets or the takeout menus or the way my weekend bag sat by the door for forty-eight hours without being fully unpacked. He moved through his life with the specific blindness of a man whose attention was a searchlight: brilliant, focused, and always pointed somewhere else.
 
-I stopped playing after that. The calluses went soft. The guitar went back to my mother's house and eventually into a closet and eventually, I assume, into a donation pile. I do not know exactly when I stopped being angry about it and started being something else. Something quieter. Resignation, maybe. Or the particular exhaustion of wanting something from someone who does not know you want it and would not know how to give it if they did.
+I stopped playing after that. The calluses went soft. The guitar went back to my mother's house and eventually into a closet and eventually, I assume, into a donation pile.
 
 ---
 
@@ -90,24 +90,6 @@ At five, after the divorce: I thought I had done something wrong. That fathers l
 At eight: I decided his music was more interesting than I was. I learned the guitar. The evidence seemed clear. He chose the sound. I was the silence.
 
 At twelve: I stopped believing in the word "creative." People used it about him like a diagnosis that explained everything. He's creative. As if creativity were a condition that exempted you from the ordinary obligations of love. As if making beautiful things in a room by yourself were the same as showing up to a school play, a birthday, a Wednesday.
-
-At fifteen: nothing. I stopped expecting. The absence became ambient, like the hum of the refrigerator, like the sound the house made when nobody was home. I did not think about it, which was its own kind of thinking about it. The not-thinking was a room I furnished carefully, with distractions and achievements and the particular armor of a teenage girl who has decided she does not need the thing she has spent her whole life wanting.
-
-At thirty, planning the wedding and writing his name on the invitation, holding the pen above the line and feeling the hesitation like a held breath: he did his best. And his best was not enough. And those two things can both be true without canceling each other out. The way two notes can clash and still be music.
-
----
-
-He is one of three.
-
-I have thought about this before. I think about it now, on the dance floor, with his calloused fingers holding mine and the song moving toward its end. Three men built the architecture of what I expect from the men I love.
-
-My father: distance and creativity. A man who lived inside his art the way monks live inside their faith, completely, with devotion, at the expense of everything the world outside the monastery requires. He taught me that love and presence are not the same thing. He taught me to confuse intensity with intimacy, to mistake a beautiful gesture for a sustained one. Every relationship I had before Will carried his blueprint. I chose men who saw me sharply and sporadically, who sent the equivalent of late birthday gifts, who drifted.
-
-Mark: chaos and destruction. A man whose love was a storm system. Loud, present, impossible to ignore, capable of filling any room and leveling anything in its path. He taught me that presence could be its own form of danger. That a man who shows up every day can still destroy the house he shows up to. The propeller. The go-kart. The bottle behind the washing machine. The Wednesday in July. Mark was the antithesis of my father, and neither of them was the answer.
-
-My grandfather: charisma and decadence. A man who could make you feel, for one evening in a leather booth, like you were the only person in the world. And then go home to a wife he had already left in every way that mattered. He taught me that warmth could be a performance. That the man who fills the room with laughter might be the emptiest person in it.
-
-Distance. Chaos. Performance. These were the options. These were the blueprints I carried into every relationship like floor plans drawn by architects who had never lived in the buildings they designed. No wonder a man like Will, a man who simply showed up and stayed, felt foreign to me. Steadiness was a language I had never been taught. I had to learn it the way you learn a second language in adulthood: slowly, clumsily, never quite losing the accent of your mother tongue.
 
 ---
 
@@ -132,8 +114,6 @@ I catch it.
 He nods. He lets go of my hand. He straightens his tie again, the same nervous adjustment from when he walked in, and steps back, and the space between us opens up the way it has always opened up, gradually, without a single identifiable moment of departure, the way shorelines erode and phone calls end and custody schedules dissolve into "when it works out."
 
 But something is different tonight. The space does not hurt the way it used to. Or it hurts differently. A cleaner pain, with less infection in it. The ache of something understood rather than something endured.
-
-He loved me. He loves me still. I can hear it in the tremor and in the late birthday gifts and in the fact that he bought a new suit and showed up only three minutes late to the most important day of my daughter's life. His love has always been a song played in another room. You can hear it through the wall. You cannot hold it.
 
 I watch him walk to the bar. He orders something, leans his elbow on the wood, turns three-quarters toward a guest he does not know. He is already talking. Already filling the silence with something easier than the thing he just left on the dance floor. The posture is different from my grandfather's, less practiced, less smooth. But the instinct is the same. Turn toward the room. Away from the feeling.
 

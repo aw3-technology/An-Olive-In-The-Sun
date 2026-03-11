@@ -49,8 +49,6 @@ I ate my dinner. Grilled cheese, I think, though it was called something else on
 
 I watched. I was good at watching. All children of unstable homes are good at watching. You learn to read rooms before you learn to read books. You learn the difference between a real laugh and a performance laugh, between eyes that are warm and eyes that are calculating, between a hand on a shoulder that means friendship and a hand on a shoulder that means ownership. I did not have these categories at seven. But I was collecting data.
 
-Here is what I collected:
-
 My grandfather's laugh got louder as the evening went on, but his eyes got quieter. The two moved in opposite directions, the volume increasing as something behind his face retreated. By the third martini the laughter was enormous, filling the booth, filling the room, and his eyes were somewhere else entirely. Not sad, exactly. Empty is not the right word either. Absent. As though the man telling the jokes had stepped out and left the body to finish the evening on its own.
 
 And here is the other thing I noticed, the detail that did not have a name until years later, when I was old enough to call it what it was.
@@ -69,15 +67,15 @@ Years later, they divorced. He was in his sixties. She was tired. That is the ve
 
 The divorce was quiet. No one yelled. No one drove a go-kart onto a freeway. The money was divided by lawyers in offices with views of the Bay. My grandmother moved to a smaller house. My grandfather kept the condo downtown, the one with the wet bar and the leather furniture and the view of the hills. He kept going to Mr. Burlingame's. He kept telling stories. Nothing changed except that the pretense of a marriage was removed, like scaffolding taken down from a building that turned out to have been holding nothing up.
 
-I thought about this often as I got older. My grandfather's thesis was charm. The negation was loneliness. And the synthesis, if there was one, was a man sitting alone at a bar in Burlingame at eight o'clock on a Wednesday, perfectly dressed, smiling at the bartender, a martini in his hand, the olives at the bottom catching the light.
+I thought about this often as I got older. My grandfather's gift was charm. What it cost was closeness. And what remained was a man sitting alone at a bar in Burlingame at eight o'clock on a Wednesday, perfectly dressed, smiling at the bartender, a martini in his hand, the olives at the bottom catching the light.
+
+I realize how neatly I have arranged this. My philosophy degree turning a person into a proof. He was not a proof. He was a man who could not sit still in his own house.
 
 My grandmother was not in the room.
 
-The class of it stayed with me too, though it took longer to name. My grandfather's world was insulated. Money absorbed the recklessness the way good leather absorbs a stain. You could drink too much and divorce badly and retreat into a performance of contentment, and if you had enough money, the performance held. The seams did not show. Nobody staged an intervention for a man in cufflinks drinking Tanqueray in a booth with white tablecloths. That was not a problem. That was a lifestyle.
+The class of it stayed with me too. My grandfather's world was insulated. Nobody staged an intervention for a man in cufflinks drinking Tanqueray in a booth with white tablecloths. That was not a problem. That was a lifestyle. My mother's world could not absorb anything. When Mark fell apart, there was no restaurant where the ugliness could be conducted in private. There was a truck with a manual transmission and an eleven-year-old behind the wheel.
 
-My mother's world could not absorb anything. When things broke in her world, they stayed broken. When Mark fell apart, there was no trust fund to catch him, no restaurant where the bartender knew his name and the ugliness could be conducted in private. There was a truck with a manual transmission and an eleven-year-old behind the wheel.
-
-I moved between these worlds without belonging to either. My grandfather's weekends, then my mother's weekday mornings. Shirley Temples and grilled cheese on white tablecloths, then cereal standing at the kitchen counter because we were running late again. I learned to adjust my posture, my vocabulary, my expectations.
+I moved between these worlds without belonging to either. Shirley Temples on white tablecloths, then cereal standing at the kitchen counter because we were running late again.
 
 The olives. I keep coming back to the olives.
 

@@ -25,8 +25,6 @@ A man in a pickup truck slowed beside me. He leaned across the passenger seat an
 
 I did not respond. I kept walking. My heart was slamming so hard I could feel it in my ears. The truck idled beside me for another half block before accelerating away, engine rattling, and I stood on the sidewalk with my backpack straps cutting into my shoulders and something new and permanent settling into my body.
 
-Not fear, exactly. Something more structural.
-
 I did not tell my mother. I did not tell anyone. I went home and did my geometry homework and ate a bowl of cereal standing at the counter and went to bed, and the next morning I put on the same uniform and walked the same route because that was the only route there was. I did think, briefly, about the skirt. Whether a longer skirt would have changed anything. I was fourteen and I was already negotiating with the theory that my clothing was an invitation someone else got to RSVP to.
 
 It was not. It never was. But the negotiation had begun, and it never stopped.
@@ -57,11 +55,7 @@ I locked the door when I got home. I checked it. I checked it again.
 
 I did not have a name for what my body learned to do. The scanning, the measuring, the constant arithmetic of distance and exit. In a crowded room I could locate every door within seconds. I knew which men were watching before I knew their names. I registered the weight of a hand before the hand arrived.
 
-It started at fourteen and it never stopped.
-
 The strange thing was how easily it merged with what was already there. The anxiety, the OCD, the compulsive scanning for what could go wrong. Before any man on the street ever said a word to me, I was already cataloguing threats. My brain arrived primed for vigilance. The world just gave it new material.
-
-The clothing motif ran through all of it. That first day, the plaid skirt. In the studio, a silk camisole someone else chose. At the party, a dress I had picked carefully, standing in front of my mirror for twenty minutes, running the calculus: this one is too short, this one is too low, this one says something I do not mean, this one says nothing at all, which might be worse. The impossible negotiation of dressing for yourself in a world that reads your body as a message addressed to someone else. Every morning a small act of defiance or surrender or both, and the difference between them was never clear, not even to me.
 
 I wore what I wanted. Things happened anyway.
 

@@ -49,9 +49,7 @@ Not violently. Politely, even. A clear plastic bag with a paper label. My sweats
 
 In exchange: a paper gown. Thin, blue, open at the back, printed with a pattern of small diamonds that might have been decorative or might have been a manufacturing artifact. The fabric made a sound when I moved, a dry whisper, like tissue paper being folded. It fit no one and everyone. It was the same gown the woman in the room next to mine wore, and the man down the hall who talked to the ceiling, and the girl my age with the shaved head and the bruises on her knuckles who sat in the common room and stared at the television without watching it.
 
-I had spent years constructing myself through what I wore. Converse and band tees in high school. Lace and satin in Hollywood. Careful blazers and clean lines during student teaching, the muting of my aesthetic self into something a classroom could accept. Clothes had always been the first language I spoke, the outermost layer of a self I was constantly building and rebuilding, the thing I could control when everything else was collapsing.
-
-The paper gown erased all of that. I was no one. I was a body in a ward in a building behind a locked door, and my identity had been folded into a plastic bag and labeled with my last name in black marker, and the version of me that existed in that bag, the version that chose earrings and tied her hair and laced her sneakers, that version was on the other side of the lock.
+Clothes had always been the thing I could control when everything else was collapsing. The paper gown erased all of that. My identity had been folded into a plastic bag and labeled with my last name in black marker, and the version of me that existed in that bag was on the other side of the lock.
 
 The new version wore paper.
 
@@ -61,7 +59,7 @@ The ward had a rhythm. It was not a rhythm I chose, which was both the horror an
 
 Morning: vitals. Blood pressure, temperature, pulse. A nurse who came in before the lights were fully on, her sneakers squeaking on the floor, her voice low and practiced. She called me honey. I did not correct her. There is a point at which you stop insisting on your own name, and I had reached it.
 
-Breakfast arrived on a tray. Scrambled eggs that glistened with a wetness that was not butter. Toast. A small carton of orange juice. A plastic cup of apple sauce. No metal utensils. A spork. I ate the toast. I drank the juice. I left the eggs. I counted the segments on the spork. Seven. I counted them again.
+Breakfast arrived on a tray. Scrambled eggs that glistened with a wetness that was not butter. Toast. A small carton of orange juice. A plastic cup of apple sauce. No metal utensils. A spork. I ate the toast. I drank the juice. I left the eggs. The spork had seven segments. I pressed my thumb along each one.
 
 Medication came in a small paper cup, a miniature version of the kind you drink water from at the dentist. The pills were inside: one white, one blue. I did not yet know what they were called. A nurse watched me put them in my mouth. She watched me drink the water. She asked me to open my mouth. She checked under my tongue. This happened every morning and every evening. The ritual of proving you had swallowed.
 
@@ -69,9 +67,7 @@ Group therapy happened at ten. A circle of chairs in a room with windows too hig
 
 The common room had a television and a shelf of paperbacks with broken spines and a puzzle someone had started and no one had finished. Three hundred pieces of a lighthouse, scattered across a card table, the border assembled but the center empty. I worked on it in the afternoons. Not because I cared about lighthouses. Because each piece was a small problem with a definite answer.
 
-I counted constantly. Steps from my room to the bathroom: fourteen. Tiles in the shower: forty-eight, six rows of eight. Seconds between the hum of the fluorescent light cycling off and cycling back on: three. Blinks between looking at the clock and looking away: four, always four, if I blinked three times I had to blink a fourth, and if I blinked five I had to start over. The counting was not a choice. The counting was the current, and I was in it, and my arms were tired and my legs were tired and the shore was not visible, but stopping was not an option because stopping meant sinking and sinking meant the thoughts, the real thoughts, the ones beneath the counting, would surface. And those thoughts were worse.
-
-What the counting was keeping down: the certainty that everything I touched would break. That I was fundamentally defective. That the scratch on my arm was a rehearsal for something larger. That my mother's face in the car was the last honest thing anyone would ever show me. That I would be here forever, or that I would leave and nothing would be different, which was the same thing. These thoughts did not arrive as words. They arrived as pressure, as weather, as a fullness behind my eyes that I could not cry out and could not think past and could not name.
+Fourteen steps from my room to the bathroom. Forty-eight tiles in the shower, six rows of eight. Three seconds between the fluorescent light cycling off and cycling back on. Four blinks between looking at the clock and looking away. Always four. If I blinked three I had to blink a fourth, and if I blinked five I had to start over. It was not a choice. It was a current, and I was in it, and my arms were tired and the shore was not visible, but stopping meant sinking, and sinking meant the thoughts, the real thoughts, the ones underneath, would surface. And those thoughts were worse.
 
 ---
 
@@ -79,13 +75,13 @@ On the third day, a psychiatrist sat across from me in a small office with no wi
 
 She said it the way you might tell someone their flight has been delayed. With a kind of practiced neutrality, a tone designed to minimize the impact of information that will, in fact, rearrange every room you have ever stood in.
 
-Bipolar II, she said. She explained the difference between I and II, and I heard her, and I understood the words, but what I was actually doing was sitting very still while the label landed inside me and kept landing. I had been called anxious. I had been called intense. I had been called too much and too sensitive and dramatic. I had called myself those things. I had absorbed them, added them to the architecture of self-blame I had been building since childhood, stacking them like bricks: anxious, intense, too much, dramatic, broken.
+Bipolar II, she said. She explained the difference between I and II, and I heard her, and I understood the words, but what I was actually doing was sitting very still while the label landed inside me and kept landing. I had spent my whole life being called too much. I had called myself that. I had absorbed it into the architecture of self-blame I had been building since childhood.
 
-Bipolar. The word was clinical and cold and precise, and it landed like a diagnosis and a verdict and a strange, exhausted relief all at the same time. A name. After twenty-three years of unnamed wrongness, of feeling like a radio tuned to a station no one else could hear, there was a name. It did not fix anything. A name never does. But it rearranged the furniture. It meant the thing inside me was not a character flaw. It was a condition. It had a shape, a literature, a treatment protocol. Other people had it. Other people had sat in offices like this and heard this word and walked out and continued to live.
+Bipolar. After twenty-three years of unnamed wrongness, there was a name. It did not fix anything. A name never does. But it rearranged the furniture. It meant the thing inside me was not a character flaw. It was a condition. Other people had sat in offices like this and heard this word and walked out and continued to live.
 
-OCD, she said. That too. The counting, the checking, the intrusive thoughts, the loops. She gave it a name.
+OCD, she said. That too. The counting, the checking, the intrusive thoughts, the loops.
 
-I sat in the office and let the words settle. Bipolar II. Obsessive-compulsive disorder. Generalized anxiety. A trio of names for a trio of uninvited residents who had been living in my skull rent-free since before I had language for them. I wanted to feel something clean. Relief, maybe. Or grief. Instead I felt the dull, flat exhaustion of someone who has been running and finally stops.
+I sat in the office and felt the dull, flat exhaustion of someone who has been running and finally stops.
 
 ---
 

@@ -5,7 +5,7 @@ There is a girl on the dance floor who cannot be more than four years old.
 
 She is spinning. Not dancing, not performing, not doing anything that requires an audience. Just spinning, arms out, head tilted back, her flower girl dress ballooning around her knees in a circle of white tulle. The hem is already stained with something. Grass, maybe, or cake frosting. She does not care. She is somewhere else entirely, somewhere inside the centrifugal logic of her own body, and the adults stepping around her with their drinks and their small talk are scenery she has not yet learned to notice.
 
-I watch her from the edge of the floor and feel something I was not expecting. Not tenderness, exactly. Something fiercer. Something with teeth. The ache of looking at a person who does not yet know what the world is going to ask of her. The stained dress, the closed eyes, the absolute trust that the ground will keep holding. I know what comes next. I have spent years in rooms full of children, and I know the distance between this girl and the version of herself who will learn to flinch, to perform, to read a room in thirty seconds for threat. The distance is not as far as her parents think.
+I watch her from the edge of the floor and feel something I was not expecting. Not tenderness, exactly. Something fiercer. Something with teeth. The ache of looking at a person who does not yet know what the world is going to ask of her. The stained dress, the closed eyes, the absolute trust that the ground will keep holding.
 
 I want to stand between her and all of it. The thought arrives fully formed, surprising in its violence, and I recognize it the way you recognize your own handwriting. I have felt this before. I feel it every day, five days a week, in a classroom where the fluorescent lights hum a different frequency than the ones in the hospital. A frequency that means something else now.
 
@@ -87,11 +87,9 @@ The worksheet came back mostly blank. One student had drawn a detailed sketch of
 
 I sat at my desk after they left and stared at the worksheet with the sneaker on it. The sneaker was actually quite good. Detailed lacing, accurate proportions, shading on the sole. Someone had spent twenty minutes drawing it while I talked about Langston Hughes.
 
-The failure taught me something I should have known. The lesson was for me. I had designed it to prove I could teach metaphor the way my college professors taught metaphor: with rigor and beauty and intellectual respect. But my students did not need intellectual respect. They needed to recognize themselves on the page before they could analyze what the page was doing. I had brought them Billy Collins when I should have brought them lyrics they already knew. I had performed brilliance instead of building a bridge.
+I had designed it to prove I could teach metaphor the way my college professors taught metaphor: with rigor and beauty and intellectual respect. But my students did not need intellectual respect. They needed to recognize themselves on the page before they could analyze what the page was doing. I had brought them Billy Collins when I should have brought them lyrics they already knew. I had performed brilliance instead of building a bridge.
 
 The next week I scrapped the handouts. I put a Tupac lyric on the board and said, "Where's the metaphor?" The room went quiet for a different reason. A hand went up. Then two. Then the girl who had been braiding hair said, "That whole second verse is a metaphor," and she was right, and the conversation that followed was louder and messier and less beautiful than anything I had planned, and it was the first time the room actually moved.
-
-I learned this: the lesson that fails is the one you built for yourself.
 
 ---
 
@@ -113,7 +111,7 @@ I was not supposed to cry at school. I was the adult in the room. I was the one 
 
 But some days a student would write something, or say something, or do something so small it barely registered, like adjusting their sleeves the way that mother had adjusted hers, and the floor would drop out of my composure and I would excuse myself and walk, at a measured pace, down the hallway and up the stairs and into the second-floor bathroom, and I would lock the door, lifting the handle and pushing, and I would sit on the closed toilet lid and press my palms against my eyes and cry the way you cry when you cannot afford to be heard.
 
-I drove home on those days and could not get off the couch. The apartment was small and quiet and I lay on the cushions with my shoes still on and stared at the ceiling and felt the weight of thirty kids pressing down on me like weather. I could not save them. I knew this. I had learned it in my own childhood, in the passenger seat of a car driving a bleeding man to a hospital, in the years of watching my mother hold everything together by refusing to acknowledge that everything was falling apart. I could not save them. But I could not stop trying. The compulsion was familiar. The girl who watches adults fall apart and tries to hold everyone together. I had simply traded the adults for children and called it a career.
+I drove home on those days and could not get off the couch. The apartment was small and quiet and I lay on the cushions with my shoes still on and stared at the ceiling and felt the weight of thirty kids pressing down on me like weather. I could not save them. I knew this. I had learned it in my own childhood, in the passenger seat of a car driving a bleeding man to a hospital, in the years of watching my mother hold everything together by refusing to acknowledge that everything was falling apart. I could not save them. But I could not stop trying.
 
 My therapist's office had a window that looked out onto a parking lot, which was its own kind of metaphor. She sat in a leather chair across from me and asked the question I had been avoiding.
 
@@ -123,7 +121,7 @@ I wanted to say healing. I wanted the narrative to be that clean: broken girl be
 
 "Probably both," she said, when I didn't answer. "And that's okay. As long as you stay aware of it."
 
-Probably both. I turned this over for weeks. The idea that purpose and pathology could share the same room. That the thing saving me was also the thing reopening the wound, every day, with the precision of a surgeon who could not stop operating.
+Probably both.
 
 ---
 
@@ -141,13 +139,7 @@ In the spring, I won the Outstanding Student Teacher award.
 
 I stood in a ballroom at the district office in a dress I had bought at the same thrift store where I found the blazer. The superintendent said my name and people clapped and I walked to the podium and accepted a plaque that was heavier than it looked, and I said something about the students, because that is what you say, and I meant it, and I drove home afterward and put the plaque on my desk and sat beside it. Proud. And alone.
 
-Pride. Real, uncomplicated pride. The kind I had not felt in years, maybe ever. The recognition arriving not as a surprise but as a confirmation: this is what you are for. You were built for this room. Every broken thing in your history gave you the eyes to see the broken things in theirs. Every kitchen table, every hospital, every night spent counting tiles on the ceiling made you the person who could look at Marcus and say, "I see you." That is not nothing. That is, in fact, the thing.
-
 And exhaustion. The bone-deep tiredness of a person who has been holding up a ceiling with her hands and has just been told she is doing an excellent job of it. The award was proof of something. But it was also proof of the cost, and the cost was this: I went home every evening carrying thirty lives in addition to my own, and my own was already more than I knew how to carry on most days.
-
-Purpose is not peace. I learned this in Room 143, under the fluorescent lights, in the second-floor bathroom with the lock that stuck. The classroom gave me meaning. It did not give me healing. The healing was a separate process, slower, less dramatic, conducted in a therapist's office with a window overlooking a parking lot. The healing was medication adjustments and breathing exercises and the tedious, unglamorous work of learning to feel things without intellectualizing them into submission. The meaning and the healing lived in different rooms, and I walked between them daily, and some days one room was locked and some days the other was, and the walking itself was the life.
-
-I became a teacher because it was the first place where my history was not a wound but an instrument. And instruments, played well, make a sound that can fill a room. And played too long, they wear out the hands.
 
 ---
 
@@ -157,6 +149,4 @@ She stands still for a moment on the dance floor, swaying slightly, the world st
 
 Her mother catches her. Lifts her. The girl buries her face in her mother's neck. The music plays. The guests move around them like water around a stone.
 
-I watch this from the edge of the room and I think about thresholds. About doors you walk through that you cannot walk back through. About the particular threshold of knowing what the world does to the unguarded, and choosing to stand in the doorway anyway. Not to block the world out. You cannot do that. But to be there when they need someone to look at them and say: I see you. I know. It gets different.
-
-This is what it means to stay in the room.
+I watch this from the edge of the room. The fluorescent lights are a long way from here. So is the second-floor bathroom, and the parking lot at dusk, and Marcus's careful handwriting. But not so far that I have forgotten.

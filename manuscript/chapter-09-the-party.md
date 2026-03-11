@@ -55,7 +55,7 @@ Not gradually. Not the way a headache fades or a muscle unclenches. It stopped t
 
 I stood in that kitchen holding a can of warm beer, and for the first time in my conscious memory, my brain was quiet.
 
-I have tried to explain this to people who do not have OCD, and the explanation always falls short. The best I can do is this: imagine you have been listening to an alarm clock ringing since you were five years old. Not a loud alarm. Just a steady, insistent beep, always there, never stopping, running underneath every conversation and every class and every meal and every attempt at sleep. You have never known what the world sounds like without it. You have built your entire life around the sound. You have learned to function inside it, to smile and nod and take notes while the alarm rings and rings. And then one night, in a stranger's kitchen, someone hands you a drink, and the alarm stops.
+I have tried to explain this to people who do not have OCD, and the explanation always falls short. The best I can do is this: imagine you have been listening to an alarm clock ringing since you were five years old. Not a loud alarm. Just a steady, insistent beep, always there, never stopping, running underneath every conversation and every class and every meal and every attempt at sleep. You have never known what the world sounds like without it. You have built your entire life around the sound. And then one night, in a stranger's kitchen, someone hands you a drink, and the alarm stops.
 
 You would drink too.
 

@@ -69,7 +69,7 @@ Did you go to Mass? Yes.
 Are you keeping up with your homework? Yes.
 How is your mother? Fine.
 
-Fine. That word did so much work in that house. It carried everything no one was willing to say. Fine meant: she is drinking on weekends. Fine meant: the man she lives with drove a go-kart down a highway. Fine meant: your granddaughter wakes up at night and cannot stop counting the tiles on her ceiling and she does not know why. Fine meant: we will not discuss this. Fine meant: the roast is ready. Sit down.
+Fine. That word did so much work in that house. Fine meant: the man she lives with drove a go-kart down a highway. Fine meant: your granddaughter wakes up at night and cannot stop counting the tiles on her ceiling and she does not know why. Fine meant: the roast is ready. Sit down.
 
 ---
 
@@ -111,10 +111,6 @@ When I was older, fifteen or sixteen, I began to wonder whether their marriage w
 
 Not whether it was good. Good was evident. The house ran, the meals arrived, the church was attended, the routines held. But happy was a different question, and I did not know how to ask it, partly because the asking would have been an invasion and partly because I was not sure I wanted the answer.
 
-I watched them the way I watched everything in those years: closely, suspiciously, with the attention of a girl who had already learned that surfaces could not be trusted. My mother's surface had been competence. Mark's surface had been charm. Every stable-looking thing in my life had turned out to be a set, a stage flat propped up from behind by effort and silence and things no one would say.
-
-My grandparents' surface was order. And the order was real. I could feel it in the floorboards, in the rhythm of the clock, in the gravitational certainty of dinner at six. It was not a performance. But I began to wonder whether the order was the same thing as love or whether it had simply replaced it, the way a callus replaces the skin it was meant to protect: functional, durable, and without sensation.
-
 My grandmother never complained. This, which had seemed to me as a child to be a form of peace, began to look, through the lens of adolescence, like a form of erasure. She did not complain about anything. Not the limitations of her life, not the monotony, not the fact that my grandfather made every decision of consequence, from the car they drove to the church they attended to the order of the evening news. She moved through the house like a woman who had long ago agreed to occupy a particular shape and had stopped noticing the edges.
 
 I did not know. I still do not. I know that fifty-three years is real. I know that showing up every morning for someone, decade after decade, without walking away, is not nothing. I know that the roast and the grace and the folded napkins were a language of care, even if the vocabulary was limited, even if there were entire shelves of human experience that language could not reach.
@@ -133,17 +129,9 @@ Or not over. Stored. Filed in the place where they keep things they will never d
 
 We drove home from their house in the dark, usually. My mother quiet at the wheel. The radio off. The headlights cutting through the Marin County fog, lighting up eucalyptus trunks and the reflective eyes of deer standing at the edge of the road.
 
-The contrast was immediate and total.
+Mark's truck in the driveway, or not in the driveway, which was worse, because his absence meant he was somewhere else doing something we would have to absorb the consequences of later, and the not knowing was its own kind of weather.
 
-Their house to ours. Order to entropy. The ticking clock to the slamming door. The folded napkins to the dishes in the sink. Mark's truck in the driveway, or not in the driveway, which was worse, because his absence meant he was somewhere else doing something we would have to absorb the consequences of later, and the not knowing was its own kind of weather.
-
-I would walk through our front door and feel the air change. Their house was pressurized, sealed, climate-controlled. Ours was open to the elements. Anything could get in. Anything already had.
-
-My sister usually fell asleep in the car. She had that gift, the ability to close her eyes and leave, to be somewhere else before we even crossed the bridge. I stayed awake. I pressed my forehead to the cold glass of the window and watched the hills go dark and thought about the clock in the hallway and the roast and the napkins and my grandmother's hand on my shoulder and I felt two things at once, with equal force, pulling in opposite directions.
-
-Gratitude. That such a place existed. That somewhere in the world there was a table set for six and a clock that kept its word and a woman who put her hand on your shoulder without being asked.
-
-And grief. Because I could not stay there. Because that house was not my house. Because the world I came from did not operate by those rules, and no amount of Sunday dinners could change the thing I went home to. Because the safety I felt at their table was real, but it was borrowed.
+My sister usually fell asleep in the car. She had that gift, the ability to close her eyes and leave, to be somewhere else before we even crossed the bridge. I stayed awake. I pressed my forehead to the cold glass of the window and watched the hills go dark.
 
 ---
 

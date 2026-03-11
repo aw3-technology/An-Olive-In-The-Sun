@@ -25,7 +25,7 @@ The letter was from the graduate school of education at a state university forty
 
 I stood at the mailbox and read it twice and felt almost nothing.
 
-This is the part of recovery no one tells you about. The part where you have done the work, the daily unglamorous work of pills and appointments and the slow recalibration of a brain that spent years trying to destroy you, and then something good happens, and you cannot feel it. The medication that kept me upright also kept me level, and level meant the peaks were lower, the valleys less deep, and a letter that should have felt like triumph felt instead like information. Data. A fact about my future that I received the way I received weather forecasts. Noted. Filed. Moved on.
+A letter that should have felt like triumph felt instead like information. Data. A fact about my future that I received the way I received weather forecasts. Noted. Filed. Moved on.
 
 I called my mother. She cried. I held the phone away from my ear and let her cry, and when she was done she said she was proud of me, and I said thank you, and I meant it, and the meaning did not reach the place where feelings are supposed to land.
 
@@ -65,8 +65,6 @@ Her face was open, curious, not cruel. She was trying to connect.
 
 I said I was fine. I said I had a standing appointment that ran late. She nodded. She did not ask what kind. She said if I ever wanted to study together she had a whole system for the assessment methods final, and the offer was genuine. I said I'd think about it. I did not think about it. By the end of the semester she had stopped asking.
 
-This was how I maintained my distance. Politely. With a smile that said *I'm fine* and a wall behind it that said *you cannot come closer.* The same architecture I had been building since the first party, since I learned that connection was possible as long as it stayed on the surface.
-
 ---
 
 The low point was a Wednesday in November.
@@ -89,7 +87,7 @@ Then I opened a new document and started the page over.
 
 I do not know why. There was no revelation. No voice from above, no motivational epiphany. The library was still fluorescent and smelled like dust and the rain was still falling and I was still tired and the medication was still adjusting and nothing had changed. I just started typing. One sentence. Then another. Bad sentences. Clumsy ones. Sentences that would need to be rewritten three times before they resembled anything usable. But sentences. Words on a page. The cursor moving forward instead of blinking in place.
 
-The decision to stay was not a decision in any way I could articulate. It was a refusal. A quiet, stubborn, inarticulate refusal to let one more thing collapse. I had let enough things collapse. I had watched my parents' marriage collapse, and my mother's composure collapse, and Mark collapse, and my own mind collapse in a hospital room with fluorescent lights not unlike these. I was tired of collapse. I was tired of being the thing that fell apart.
+The decision to stay was not a decision in any way I could articulate. It was a refusal. A quiet, stubborn, inarticulate refusal to let one more thing collapse.
 
 So I stayed. Not because I believed in myself. Because I was too tired to start over.
 
@@ -124,10 +122,6 @@ Seventy-eight pages. A study on trauma-informed teaching practices in Title I sc
 The defense was in May. Three professors. They passed me. One shook my hand and said congratulations and the word felt like a stone in my palm, smooth and real and surprisingly heavy.
 
 The diploma arrived six weeks later. I hung it on the wall on a nail I hammered in myself, slightly crooked. It hung next to nothing. Just the diploma, in its dark frame, on a white wall, in an apartment that smelled like the lavender candle I kept by the window.
-
-I looked at it the way you look at a scar: with recognition, not celebration. The diploma was proof that I could endure. That I could show up, day after day, for something that required me to function at a level my brain did not always allow.
-
-The degree was real. The anxiety was also real. Both hung on the wall, visible and invisible, taking up exactly the same amount of room.
 
 ---
 

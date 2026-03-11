@@ -5,7 +5,7 @@ My sister arrives carrying a black nylon case the size of a small suitcase and t
 
 "Sit," she says, and pulls the desk chair in front of the mirror.
 
-I sit. My robe is knotted too tight across my ribs and I loosen it, then tighten it again. She unzips the case and begins laying out brushes in a row, handles facing the same direction, each one a different width. Foundation bottles. A palette of eyeshadows in neutrals. Primer, setting spray, two kinds of concealer. She arranges them with the quiet efficiency of a surgeon preparing a tray, and I watch her hands move and feel something in my chest unclench. Her hands do not shake. They never have. Not when our parents told us. Not when the phone rang at three in the morning. Not once in thirty-four years of the same disaster that made mine tremble over earrings at dawn.
+I sit. My robe is knotted too tight across my ribs and I loosen it, then tighten it again. She unzips the case and begins laying out brushes in a row, handles facing the same direction, each one a different width. Foundation bottles. A palette of eyeshadows in neutrals. Primer, setting spray, two kinds of concealer. She arranges them with the quiet efficiency of a surgeon preparing a tray, and I watch her hands move and let my own hands go still in my lap. Her hands do not shake. They never have. Not when our parents told us. Not when the phone rang at three in the morning. Not once in thirty-four years of the same disaster that made mine tremble over earrings at dawn.
 
 She tilts my chin up with two fingers and studies my face the way she studies every face: professionally. Mapping the terrain. Noting what needs to be corrected. I wonder, not for the first time, whether she chose a career in surfaces on purpose.
 
@@ -75,11 +75,9 @@ In that room, every night, my sister fell asleep first. I could hear her breathi
 
 She slept. I counted.
 
-Two daughters of the same collapse choosing different languages for the same wound.
-
 By middle school the gap between us felt permanent. She watched reality television on the living room couch while I sat on my bed reading Sylvia Plath, convinced that someone who had been dead for forty years understood me better than anyone alive. She painted her nails in careful, even strokes. I wrote in journals I hid under the mattress. She could walk into a room and read every person in it within seconds, filing the information away behind a neutral expression. I could walk into a room and immediately begin constructing a theory about why everyone in it was secretly suffering.
 
-From the outside, my sister's version looked like wellness. She got up. She went to school. She did not spiral visibly. She did not lock herself in the bathroom hyperventilating before class or spend three hours reorganizing her desk drawers at midnight because the pencils were not sorted by length. She was the easy daughter, the uncomplicated one, the one nobody needed to worry about because she never gave them anything to see.
+From the outside, my sister's version looked like wellness. She got up. She went to school. She did not spiral visibly. She did not lock herself in the bathroom hyperventilating before class or spend three hours reorganizing her desk drawers at midnight because the pencils were not sorted by length. She was the easy daughter, the one who never gave them anything to see.
 
 What nobody saw was the drinking. Not hers, not then. Our mother's. The glass of wine on Friday that became two by Saturday, that became the bottle left open on the counter on Sunday evenings, the slight loosening of her face, the softening of her consonants. My sister saw all of it. She saw it the way she sees skin: with clinical precision, noting the texture, the discoloration, the places where something beneath the surface was starting to show.
 
@@ -103,17 +101,17 @@ Our mother's apartment. The table set for four because our father was not invite
 
 My sister was on her third glass of wine. I noticed because I was counting, because counting was what I did, because the medication had quieted some of my loops but not the one that tracked other people's consumption. She was not drunk. She was loosened, which in our family looked like honesty.
 
-We were clearing the table. Our mother had gone to the kitchen. The two of us stood on either side of the dining room, holding plates, and my sister looked at me with an expression I had never seen on her face before. Something stripped back. Something that had been waiting.
+We were clearing the table. Our mother had gone to the kitchen. The two of us stood on either side of the dining room, holding plates, and my sister looked at me with her jaw set and her eyes flat, the careful composure gone, her face bare in a way makeup had nothing to do with.
 
 "You think you're the only one who got hurt?" she said. Her voice was even. Almost casual. "You just got to make it interesting."
 
 I stood there holding a plate with a smear of cranberry sauce on it and felt the sentence land in the center of my chest. Not because it was cruel. Because it was true.
 
-I had gotten to fall apart. I had been hospitalized, diagnosed, medicated. I had been given a name for the thing inside me, and the name, however clinical, however frightening, had also been a kind of permission. Permission to say: something is wrong. Permission to sit in a therapist's office and trace the architecture of my pain. Permission to call it what it was.
+I had gotten to fall apart. I had been hospitalized, diagnosed, medicated. The name, however clinical, had also been a kind of permission. Permission to say: something is wrong.
 
-My sister had received no such permission. She had woken up every morning and driven to work and applied foundation to other women's faces and driven home and poured a glass of wine and gone to bed, and she had done this five hundred times, a thousand times, and no one had ever stopped her and said: are you okay? Not because they did not care. Because she had made it impossible to ask. She had perfected the surface so completely that the question never occurred to anyone.
+My sister had received no such permission. She had perfected the surface so completely that the question never occurred to anyone.
 
-I wanted to say something. To cross the room and tell her I was sorry, though I was not sure what I would be apologizing for. For falling apart more visibly. For getting the help she never sought. For turning our shared childhood into a philosophical framework she found, I think, obscene. For having a name for my pain when hers went unnamed and therefore, in the logic of our family, unreal.
+I wanted to cross the room and tell her I was sorry, though I was not sure what I would be apologizing for. For falling apart more visibly. For having a name for my pain when hers went unnamed and therefore, in the logic of our family, unreal.
 
 But she was already carrying the plates to the kitchen. The moment closed behind her like a door.
 

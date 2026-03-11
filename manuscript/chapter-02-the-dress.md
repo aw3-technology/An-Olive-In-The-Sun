@@ -23,7 +23,7 @@ Her hands are shaking.
 
 Not dramatically. You would not notice unless you were watching for it. But I have been watching for it my entire life, the way sailors watch for weather. The slight tremor in her fingertips, the knuckles tightening around whatever she is holding. I have catalogued those hands in every state: steady over a keyboard at work, deliberate as she signed school forms at the kitchen table, loose and careless around the stem of a wineglass on a Sunday evening.
 
-The zipper begins to climb. Her breath is warm on the back of my neck. I can smell her perfume, something clean and floral she has worn since I was a child, and beneath it, coffee and the faintest trace of hairspray. Being dressed by the woman who raised you. Her body inches from yours, the fabric a membrane between what she made and what you became.
+The zipper begins to climb. Her breath is warm on the back of my neck. I can smell her perfume, something clean and floral she has worn since I was a child, and beneath it, coffee and the faintest trace of hairspray. Being dressed by the woman who raised you. Her body inches from yours.
 
 The zipper catches for a half second and my stomach drops. The thought arrives unbidden, fully formed: it will break. It will break during the ceremony, in front of everyone, the teeth splitting open down my back while two hundred people watch me come undone. I can see it. I can feel the cool air on my spine, the gasps, my own hands reaching behind me to hold myself together. I push the image away. Touch the seam with my thumb. Press the metal teeth flat. Touch it again.
 
@@ -51,23 +51,17 @@ On weekdays she held. She more than held. She was impeccable. Lunches packed in 
 
 On weekends, it went into wine.
 
-This was not dramatic. I want to be clear about that. My mother was not the kind of drinker who staggered or slurred or broke things. She was the kind of drinker who softened. Who became, for a few hours on a Saturday afternoon, slightly less precise. The laughter came easier. The posture loosened. Her voice, normally modulated to the exact pitch of professional competence, dropped into something warmer, rounder, less careful. She was easier to be around after the second glass. She was almost relaxed. By the third glass, her hands shook.
+This was not dramatic. I want to be clear about that. My mother was not the kind of drinker who staggered or slurred or broke things. For a few hours on a Saturday afternoon, she became slightly less precise. The laughter came easier. The posture loosened. Her voice, normally modulated to the exact pitch of professional competence, dropped into something warmer, rounder, less careful. She was easier to be around after the second glass. She was almost relaxed. By the third glass, her hands shook.
 
-I learned to track the glasses the way other children track the weather. One glass: fine, she is unwinding, this is normal, adults do this. Two glasses: better, actually, she is laughing now, she is telling a story about something that happened at work, she is almost the mother from before, the one I only half remember. Three glasses: watch carefully. The tremor in her hands. The slight looseness in her jaw. The moment when the warmth starts to curdle into something else, something sharper, something that might become tears or might become a phone call to her sister that lasts an hour and ends with her voice thick and muffled behind her bedroom door.
+One glass: fine, she is unwinding, this is normal, adults do this. Two glasses: better, actually, she is laughing now, she is telling a story about something that happened at work, she is almost the mother from before, the one I only half remember. Three glasses: watch carefully. The tremor in her hands. The slight looseness in her jaw.
 
 I never saw four glasses. She always stopped at three. The discipline of a woman who knew exactly where the edge was and parked right beside it.
 
-Her family drank like this. All of them. Not alcoholics, in the clinical sense, or at least not the kind anyone would name. Just a family where alcohol was the medium through which everything passed. Birthdays, holidays, Sunday afternoons, funerals, barbecues, football games, graduations. Her brothers showed up to family gatherings with cases of Coors Light and the wives brought wine and by four in the afternoon the living room was loud and the backyard was louder and the children ran between the adults' legs while the laughter rose and sharpened.
+Her family drank like this. All of them. Not alcoholics, in the clinical sense, or at least not the kind anyone would name. Just a family where alcohol was the medium through which everything passed. Birthdays, holidays, funerals, barbecues. By four in the afternoon the living room was loud and the backyard was louder and the children ran between the adults' legs while the laughter rose and sharpened.
 
-I remember those gatherings in fragments. The particular orange of late afternoon sunlight falling through the kitchen window of my aunt's house. Paper plates. Plastic cups. The smell of sunscreen and charcoal and something sweet, maybe a pie, maybe just the sugar on the rim of someone's cocktail. Country music from a stereo in the garage, the bass rattling the tools on the pegboard.
-
-The men gathered around the grill or the television. The women gathered in the kitchen, where the conversation moved in slow circles: work, children, someone's husband, someone's diet. My mother among them, wineglass in hand, laughing at things I could not hear. She looked happy at these gatherings. She looked like she belonged to a world that made sense, a world where people married and stayed, where Sunday meant family and family meant showing up with a dish and a bottle and sitting together until the light went down.
-
-But underneath the gathering, always, was the hum. The undercurrent of something that was not quite celebration and not quite grief but lived in the space between. The uncle who told the same joke three times because he had lost count. The cousin who fell asleep on the couch at five o'clock and no one said anything. The collective agreement to call this togetherness, to call this love, to call this fine.
+I remember those gatherings in fragments. The smell of sunscreen and charcoal. Paper plates. Country music from a stereo in the garage. The uncle who told the same joke three times because he had lost count. The cousin who fell asleep on the couch at five o'clock and no one said anything. The collective agreement to call this togetherness, to call this love, to call this fine.
 
 I sat on the floor in corners and watched.
-
-That is, I think, where I learned it. Not drinking. Watching. The ability to sit in a room and track every shift in temperature, every change in volume, every tightening of a jaw or loosening of a hand around a glass. To know, before anyone said a word, whether the evening was going to end in laughter or in someone crying in the driveway.
 
 ---
 
