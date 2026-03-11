@@ -38,6 +38,68 @@ What to avoid:
 
 ---
 
+## EMOTIONAL RESTRAINT
+
+This is the single most important craft principle in the book. The material is inherently powerful: divorce, suicide, mental illness, exploitation. The writing does not need to amplify any of it. **Let the facts carry the weight.**
+
+**The rule:** The worse the event, the simpler the prose. Understatement is always more powerful than amplification. A flat declarative sentence after a devastating scene will hit the reader harder than any amount of lyrical anguish.
+
+**Show, don't explain.** Instead of telling the reader how chaotic Mark was, show: the boat accident, the go-kart arrest, the quiet moments of tension. Instead of explaining how painful the divorce was, show: the sunlight on the kitchen table, the sister crying, Olivia going still. The reader should *experience* the events, not just hear about them. If a scene needs narration to explain why it matters, the scene isn't doing its job.
+
+**Avoid the following:**
+- Adjectives that tell the reader how to feel ("terrible," "heartbreaking," "devastating")
+- Sentences that explain the emotional significance of what just happened
+- Retrospective commentary that pre-digests the meaning for the reader
+- Amplifying language ("gut-wrenching," "shattered," "world-shattering")
+
+**The test:** After writing any emotional passage, ask: *Is the reader feeling this because of the prose, or despite it?* If the prose is doing the feeling for the reader, rewrite it. The best emotional moments in the book should be the most restrained.
+
+---
+
+## TONE BALANCE
+
+The book's material is heavy. Without deliberate counterweight, it will become emotionally exhausting. The reader needs oxygen.
+
+**Humor** should surface naturally across all five parts, not just in lighter chapters. Olivia's dry, dark wit is a survival tool. It should appear in:
+- Wedding-day observations (the absurdity of ceremony, the comedy of family dynamics)
+- Flashback commentary (the distance between what happened and how she talks about it now)
+- Self-deprecation about her own habits (the counting, the rituals, the philosophical overthinking)
+
+Humor does not diminish pain. It proves Olivia has survived it. A reader who can laugh during a dark chapter will trust the book more than one who cannot.
+
+**Beauty** must be present in every part of the book:
+- Part I: Northern California morning light, vineyard, the wedding dress
+- Part II: Music, adolescent aesthetic identity, the restaurant at Mr. Burlingame
+- Part III: The grandparents' kitchen, Barcelona's architecture, the joy of philosophical discovery
+- Part IV: The reunion with Will, the classroom, cooking for herself
+- Part V: The reception, sunset over olive trees, stepping back into the light
+
+**Quiet peace** is the hardest to write and the most necessary. Moments where nothing is wrong:
+- The Sunday drive with her mother (Ch. 24)
+- Cooking pasta with olive oil, alone in her apartment (Ch. 20)
+- Will's text messages
+- The grandmother adjusting the grandfather's tie (Ch. 13)
+
+These are the moments that make the difficult material bearable and give the reader a place to stand.
+
+---
+
+## NARRATIVE DISCIPLINE
+
+The book has more compelling material than most memoirs. This is a strength and a risk. If every anecdote appears, the book will feel scattered.
+
+**The 10--15 rule:** The best memoirs focus on 10--15 essential moments. Each should be a scene the reader will remember. The rest of the book connects, reflects on, and contextualizes these moments. If a flashback is merely interesting, cut it. If an anecdote doesn't move Olivia toward answering the central question (*Am I destined to repeat the broken relationships of my family?*), it doesn't belong.
+
+**Every scene must earn its place** by doing at least one of:
+1. Advancing the emotional arc (fear → choice)
+2. Revealing character unavailable any other way
+3. Deepening the reader's understanding of a generational pattern
+4. Moving Olivia closer to answering the central question
+
+**What to cut:** Anecdotes that duplicate a point already made. Scenes that are vivid but thematically inert. Cultural references that don't attach to a specific moment. Reflections that restate what a scene already showed.
+
+---
+
 ## SENTENCE STYLE
 
 **Short sentences** for emotional impact:
@@ -73,6 +135,12 @@ Olivia uses philosophy the way other people use therapy language --- it is how s
 > I spent a semester learning to diagram suffering. It didn't make it hurt less. It just made me better at describing the shape of the thing that was crushing me.
 
 Philosophy should be tested against lived experience in every scene where it appears. When Hegel's framework genuinely illuminates something, let it. When Olivia is using it as intellectual armor---thinking instead of feeling---let the reader sense the dodge. The most powerful philosophy moments will be the ones where the framework fails and Olivia has to feel the thing raw.
+
+**The overintellectualization risk:** Philosophy is one of the book's greatest strengths and its biggest trap. If the Hegel sections become too abstract, readers will disengage. Every philosophical passage must connect to a specific feeling, a specific memory, a specific moment in Olivia's life. Philosophy should appear as *insight*, not lectures.
+
+**The ratio:** For every philosophical reflection, there must be a concrete sensory detail or a specific scene grounding it. If Olivia is thinking about Hegel's dialectic, she should also be noticing the light in the classroom, or the professor's chalk-dusted hands, or the smell of old books. The ideas live in the body, not above it.
+
+**When to deflate:** At least once per philosophy-heavy chapter, Olivia should undercut her own intellectualizing. Not as a running joke, but as honest self-awareness. She knows that thinking about suffering is easier than feeling it. The reader should sense this tension without needing it explained.
 
 ---
 
