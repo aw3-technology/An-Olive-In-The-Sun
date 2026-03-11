@@ -13,7 +13,7 @@ Mark drove a go-kart down Highway 101 and got arrested.
 
 I need to say that again because the sentence does not become less absurd with repetition. My stepfather, a grown man, a man with a mortgage and a driver's license and a wife and two stepdaughters, got on a go-kart. A go-kart. The kind with a plastic seat and a lawn mower engine that tops out at thirty miles an hour if you lean forward. He drove it onto the 101 freeway, merged into traffic between an eighteen-wheeler and a Volvo station wagon, and made it nearly four miles before the California Highway Patrol pulled him over.
 
-I do not know what he was thinking. I am not sure he was thinking. That was the thing about Mark. His chaos did not announce itself with warning signs or a careful escalation of bad decisions. It arrived fully formed, like weather. One moment, a Tuesday. The next, a man on a go-kart doing twenty-eight in the slow lane of a major freeway while semis honked and swerved around him.
+I do not know what he was thinking. I am not sure he was thinking. That was the thing about Mark. It arrived fully formed, like weather. One moment, a Tuesday. The next, a man on a go-kart doing twenty-eight in the slow lane of a major freeway while semis honked and swerved around him.
 
 He'd been drinking. Of course he'd been drinking. That detail barely deserves its own sentence because it was always true. Mark had been drinking the way the sky had been blue. The question was never whether but how much, and on that particular afternoon the answer was enough to make a go-kart on a freeway seem like a reasonable idea.
 
@@ -45,7 +45,7 @@ She came home and stood in the kitchen for a long time without saying anything.
 
 "Mark had an episode," she said finally.
 
-An episode. The word she used for everything. Mark getting drunk and falling off the porch was an episode. Mark disappearing for three days and coming back smelling like a bar in Reno was an episode. Mark putting his hand in a boat propeller was an episode. The word "episode" worked like a tourniquet. It stopped the bleeding. It kept you from having to look at the wound and call it what it was.
+An episode. The word she used for everything. Mark getting drunk and falling off the porch was an episode. Mark disappearing for three days and coming back smelling like a bar in Reno was an episode. Mark putting his hand in a boat propeller was an episode. The word worked like a tourniquet.
 
 I was eleven. I stood in the kitchen doorway eating an apple and I said, "What happened this time?"
 
@@ -81,11 +81,9 @@ My mother told the go-kart story for years. She told it at Thanksgiving. She tol
 
 Episode.
 
-I learned something in that kitchen, standing with my apple, laughing with my mother about a man on a go-kart. I learned that if you make the chaos funny, you can survive it. If you turn the disaster into a punchline, you can keep standing. You can stay in the kitchen. You can finish your apple. You can go back to the television and watch whatever you were watching before the phone rang and your life reminded you, again, that normal was something other people had.
-
 I called it a Tuesday.
 
-Not because it happened on a Tuesday. It might have been a Saturday. I don't remember the day, and it doesn't matter. I called it a Tuesday because that was the point. In our house, a man on a go-kart on the freeway was not extraordinary. It was not even the most dramatic thing that happened that month. It was just another Tuesday. Another story. Another crisis absorbed into the ordinary texture of our lives, filed away alongside the boat propeller and the three-day disappearances and the bottles lined up behind the dryer where he thought no one would find them.
+Not because it happened on a Tuesday. I don't remember the day. In our house, a man on a go-kart on the freeway was just another Tuesday. Filed away alongside the boat propeller and the three-day disappearances and the bottles lined up behind the dryer where he thought no one would find them.
 
 We found them. We always found them.
 

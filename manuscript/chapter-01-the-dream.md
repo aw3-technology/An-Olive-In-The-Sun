@@ -87,9 +87,7 @@ My sister started crying almost immediately, her small fists pulling at the hem 
 
 I did not cry.
 
-I just sat there, staring at the sunlight on the table, while something inside me grew very calm. Not peace. Something harder than that. A stillness that had weight to it, that pressed down and held everything in place. My body postponing the feeling for me, storing it somewhere I would not find it for years.
-
-That afternoon reshaped everything that came after. When your first model of love dissolves before you are old enough to understand what love is, you begin to assume dissolution is the natural state of things. Not a failure. Just the way the story always goes.
+I just sat there, staring at the sunlight on the table, while something inside me grew very calm. Not peace. Something harder than that. A stillness that had weight to it, that pressed down and held everything in place.
 
 ---
 
@@ -123,9 +121,9 @@ Another message, from Will, sent at 6:14 a.m.: *Couldn't sleep. There's a rooste
 
 I read it twice. Three times.
 
-In my family, marriage has always functioned less as a destination and more as a temporary arrangement. My grandparents on my father's side divorced after forty years, proof that longevity guarantees nothing. My parents lasted five. A stepfather arrived later. For most of my life, love and impermanence have felt like the same thing.
+In my family, marriage has always functioned less as a destination and more as a temporary arrangement. My grandparents on my father's side divorced after forty years. My parents lasted five. A stepfather arrived later.
 
-Which is why the dream did not feel strange. It felt logical. He would not show up. The story would end the same way all the others had.
+Which is why the dream did not feel strange. It felt logical. He would not show up.
 
 But he texted at 6:14 in the morning. Before the sun was fully up. Already awake, already outside, watching the fog for me because he knew I would want to see it.
 

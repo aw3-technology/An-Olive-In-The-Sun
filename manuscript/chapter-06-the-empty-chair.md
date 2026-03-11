@@ -3,7 +3,7 @@
 
 There is a chair in the third row, on the left side, with a single white ranunculus laid across the seat.
 
-No one is sitting in it. No one will. The flower rests there the way a hand rests on a table when the person across from you has nothing left to say. I placed it this morning while the coordinator was busy arguing with the caterers about napkin folds, while the string players tuned their instruments in the shade of the oak tree, while the world continued assembling itself into a wedding around something it could not see. The flower is small. The chair is not. Absence takes up more room than I ever expected it to.
+No one is sitting in it. No one will. The flower rests there the way a hand rests on a table when the person across from you has nothing left to say. I placed it this morning while the coordinator was busy arguing with the caterers about napkin folds, while the string players tuned their instruments in the shade of the oak tree, while the world continued assembling itself into a wedding around something it could not see. The flower is small. The chair is not. The chair is not small.
 
 I adjust the stem so it sits centered on the wooden seat. Then I adjust it again.
 
@@ -57,7 +57,7 @@ He just needs to get it together.
 
 It's not that bad.
 
-We used these phrases the way other families used grace before dinner: a ritual incantation meant to hold something together that was already coming undone. If we named it correctly, softly, with the right amount of casual certainty, then maybe it would stay manageable. Maybe the naming itself would keep it small.
+We used these phrases the way other families used grace before dinner.
 
 Mark's drinking had been part of him for as long as I'd known him. The boat, the go-kart, the stories that passed for family legend. But something shifted that year. The drinking stopped being episodic and became constant, a low hum underneath everything, the way a refrigerator runs all night and you stop hearing it until someone finally unplugs it and the silence is deafening. He drank in the morning. He drank in the afternoon. He drank the way people breathe: automatically, without decision, as though stopping would require more effort than continuing.
 
@@ -81,7 +81,7 @@ Mark would deflect. "Out." "Around." "You're overreacting."
 
 The word overreacting did something to my mother's face that I have never forgotten. A brief flash, not quite anger, more like the moment before a light goes out. A filament burning white-hot before it dies.
 
-She never overreacted. That was the problem. She under-reacted so consistently that by the time anything was named, it had already grown too large to hold.
+She never overreacted.
 
 One night I heard glass break in the kitchen. Not a crash. A single clean sound, like a bell rung once. I lay in bed and listened. Footsteps. Water running. The careful sweeping of shards. Then silence. In the morning there was a gap on the shelf where a wine glass used to sit, and neither of my parents mentioned it. I stared at the gap during breakfast the way you stare at a missing tooth. Something had been there and was not, and the absence was more disturbing than the breaking.
 
@@ -103,7 +103,7 @@ My mother found me there at three.
 
 "Why don't you change into something comfortable," she said. Softly. Not a question.
 
-I wore those jeans to school the following Monday. And the Monday after that. They became my armor, proof that I had once been a girl with plans, even if the plans had dissolved. This was the year I began to understand that clothes could carry things your face refused to show. That getting dressed was not vanity. It was architecture. You built the outside to protect whatever was left of the inside.
+I wore those jeans to school the following Monday. And the Monday after that.
 
 ---
 
@@ -111,9 +111,9 @@ The holidays were the worst.
 
 Thanksgiving arrived and Mark sat at the table and carved the turkey and told a joke that made my uncle laugh and refilled everyone's wine glass with the practiced generosity of a man who wanted the bottle to empty faster. From the outside, the scene looked like a family. From the inside, it felt like watching a play where one of the actors has forgotten he is performing.
 
-His hands shook when he carved. Not dramatically. Just enough that the knife slipped twice and he laughed both times and said, "Turkey's fighting back." My mother took the knife from him gently, finished the carving herself, and no one acknowledged the transfer. The unspoken choreography of managing someone. How you learn to step in without making it visible, to correct without confronting, to hold the whole production together with invisible thread.
+His hands shook when he carved. Not dramatically. Just enough that the knife slipped twice and he laughed both times and said, "Turkey's fighting back." My mother took the knife from him gently, finished the carving herself, and no one acknowledged the transfer. No one acknowledged the transfer.
 
-After Christmas he was gone for four days. My mother told the neighbors he was visiting his brother in Sacramento. His brother lived in Portland. The lie was not for them. It was for herself, for us, for the version of the family she was still trying to maintain through sheer narrative willpower.
+After Christmas he was gone for four days. My mother told the neighbors he was visiting his brother in Sacramento. His brother lived in Portland.
 
 When he came back, he smelled like the concept of a bar. The inside of a place designed for people who do not want to go home.
 
@@ -123,7 +123,7 @@ I started keeping a list that year, in a notebook I hid under my mattress. Not a
 
 Dates he did not come home. Dates he came home late. Dates my mother cried in the bathroom with the water running, thinking we could not hear her over the faucet but of course we could. Dates the fighting happened. Dates the silence was worse than fighting.
 
-I do not know why I kept it. I was thirteen. I did not have the vocabulary for what I was doing. But something in me understood that if I wrote it down, it would be real. That the record would hold the truth even when everyone around me was quietly, persistently agreeing to let it dissolve.
+I do not know why I kept it. I was thirteen. I did not have the vocabulary for what I was doing. But something in me understood that if I wrote it down, it would be real.
 
 The list grew longer through the winter and into the spring. It filled four pages, then eight. I noted what he wore when he came home late, what my mother said, what my sister did, what I felt. I noted the specific silence of a house holding its breath and the particular sound of a car pulling into the driveway at an hour when no car should.
 
@@ -159,6 +159,6 @@ Three words. I press my thumb against the screen and hold it there. I cannot fee
 
 The guests will arrive soon. They will walk down the aisle, find their seats, sit on either side of this chair without knowing what it holds. Some will notice the flower and think it is a decoration. Some will not notice it at all. They will smooth their skirts and adjust their jackets and lean toward each other and whisper about the flowers, the light, how beautiful the venue is, how nervous the bride must be.
 
-They will not know about the man who is not here. They will not know what the empty chair means, or what it cost, or how long it took to learn that some absences never stop arriving.
+They will not know about the man who is not here.
 
 I turn away from it. The ceremony has not started yet. There is still time to feel everything before I have to stand in front of all these people and choose.

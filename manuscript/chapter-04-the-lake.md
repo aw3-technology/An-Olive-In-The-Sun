@@ -35,8 +35,6 @@ My mother was up by the car. My sister was in the water, floating on her back wi
 
 I do not know why I did not yell.
 
-There are moments your body understands before your mind does. You feel the wrongness of something in your teeth, in the backs of your knees, in the tightening across your scalp, and by the time your brain catches up the moment has already passed through you and become something else. Something that has already happened.
-
 Mark's hand went into the propeller housing. He was checking something. Adjusting something. I do not know. What I know is the sound. A wet, mechanical grinding, brief, half a second at most, and then his arm jerked back and the sound he made was not a scream. It was lower than that. Animal. A sound from below language.
 
 He stumbled backward and sat down hard in the shallow water. His right hand was out in front of him, held up like he was trying to show someone something, and the water around it turned pink, then red, then a darker red that spread outward from him in slow, terrible clouds.
@@ -83,8 +81,6 @@ I was eleven years old. I had never driven a car. I had sat on Mark's lap once a
 
 "I'll tell you what to do," she said. "Mark will tell you the gears."
 
-The absurdity of this did not register then. It registered later. Years later, in a therapist's office, when I described it and watched my therapist's face change, and I realized for the first time that what I had always filed under "a crazy thing that happened once" was something else entirely. Something with a clinical weight to it. A word like parentification, which I did not learn until I was twenty-six.
-
 But at the time I just climbed into the driver's seat.
 
 I was too small. My feet barely reached the pedals. Mark, from the passenger seat, his voice tight and strange, told me to push the seat forward. I found the lever and slid it up until my toes could press the clutch to the floor. The seat was still warm from him. The steering wheel smelled like beer and sunscreen.
@@ -119,7 +115,7 @@ But I kept going.
 
 The hospital appeared like something from a dream. A low beige building on the right side of the road with a red emergency sign and a parking lot half full of cars driven there by adults. I pulled in too fast, hit the curb, stalled the engine. It did not matter. We were there.
 
-After that, the adults took over. The phrase sounds like relief. It was not. It was the strange vertigo of being returned to childhood after your body has been somewhere else entirely, somewhere older and harder, and being expected to fit back into the smaller shape as though nothing had changed.
+After that, the adults took over.
 
 Nurses in scrubs. A wheelchair. Mark making jokes already, something about how he should have let the fish win, which no one laughed at. The bright, buzzing hallway. The smell of antiseptic and floor wax and the particular staleness of air that has been recycled through a building designed to keep people alive.
 
@@ -143,11 +139,9 @@ We stopped for pizza on the way home and Mark ate with his left hand and made ev
 
 As though an eleven-year-old had not driven fourteen miles with blood on the passenger seat. As though the day had been exactly what it was supposed to be. A family outing. A day at the lake. A minor incident, absorbed and filed and never mentioned again at the dinner table.
 
-My mother traded one kind of breaking for another. She left a man who was absent for a man who was present but dangerous, and perhaps she could not see the difference, or perhaps she saw it clearly and decided that dangerous at least meant someone was in the room. I have thought about this for twenty-three years and I still do not know. I do not think she knows either.
-
 That night I lay in bed and held my hands up in the dark and looked at them. They were still shaking. Small hands. A child's hands, with chipped nail polish and a friendship bracelet my sister had made me, the threads already fraying. I held them above me and watched them tremble against the ceiling, and I thought about how they had held a steering wheel, how they had turned a key, how they had done something no one had ever taught them to do.
 
-I did not feel proud. I felt something else. Something I would not have a word for until much later, when a therapist would sit across from me and say the phrase "hypervigilance" and I would think: yes. That. The feeling of being permanently ready. Of knowing, in your body, that the adults in your life could not be trusted to keep themselves safe, which meant they certainly could not be trusted to keep you safe. Which meant you had better learn to drive.
+I did not feel proud. I felt ready. Permanently ready.
 
 ---
 
@@ -172,7 +166,3 @@ The road curves. Vineyards appear on both sides, rows of vines stripped nearly b
 My mother slows the car and turns into the drive.
 
 My hands are on my lap now. Fingers laced. Still.
-
-I learned to drive before I learned to trust anyone to get me where I needed to go. I have spent twenty-three years unlearning the lesson that afternoon taught me. Some days I almost believe I have.
-
-Today I am going to let someone else be at the end of the road.

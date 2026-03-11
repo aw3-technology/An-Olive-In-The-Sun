@@ -7,7 +7,7 @@ My sister arrives carrying a black nylon case the size of a small suitcase and t
 
 I sit. My robe is knotted too tight across my ribs and I loosen it, then tighten it again. She unzips the case and begins laying out brushes in a row, handles facing the same direction, each one a different width. Foundation bottles. A palette of eyeshadows in neutrals. Primer, setting spray, two kinds of concealer. She arranges them with the quiet efficiency of a surgeon preparing a tray, and I watch her hands move and feel something in my chest unclench. Her hands do not shake. They never have. Not when our parents told us. Not when the phone rang at three in the morning. Not once in thirty-four years of the same disaster that made mine tremble over earrings at dawn.
 
-She tilts my chin up with two fingers and studies my face the way she studies every face: professionally. Mapping the terrain. Noting what needs to be corrected. I wonder, not for the first time, whether she chose a career in surfaces because ours were the only things anyone in our family ever maintained.
+She tilts my chin up with two fingers and studies my face the way she studies every face: professionally. Mapping the terrain. Noting what needs to be corrected. I wonder, not for the first time, whether she chose a career in surfaces on purpose.
 
 "You didn't sleep," she says. Not a question.
 
@@ -45,7 +45,7 @@ She nods.
 
 I tilt my head. Study the reflection. The lines look even, but I cannot be sure, and the not being sure is the thing that has teeth. "Can you check again?"
 
-She does not roll her eyes. She leans in, compares one side to the other, and says, "They're perfect." Her voice is patient in a way that costs her something, and I love her for it without knowing how to say so.
+She does not roll her eyes. She leans in, compares one side to the other, and says, "They're perfect." Her voice is patient in a way that costs her something.
 
 Then the mascara. She holds the wand close to my lashes and says, "Look up."
 
@@ -79,17 +79,13 @@ Two daughters of the same collapse choosing different languages for the same wou
 
 By middle school the gap between us felt permanent. She watched reality television on the living room couch while I sat on my bed reading Sylvia Plath, convinced that someone who had been dead for forty years understood me better than anyone alive. She painted her nails in careful, even strokes. I wrote in journals I hid under the mattress. She could walk into a room and read every person in it within seconds, filing the information away behind a neutral expression. I could walk into a room and immediately begin constructing a theory about why everyone in it was secretly suffering.
 
-Neither of us was wrong. Both of us were surviving.
-
-But survival looks different from the inside and the outside, and from the outside, my sister's version looked like wellness. She got up. She went to school. She did not spiral visibly. She did not lock herself in the bathroom hyperventilating before class or spend three hours reorganizing her desk drawers at midnight because the pencils were not sorted by length. She was the easy daughter, the uncomplicated one, the one nobody needed to worry about because she never gave them anything to see.
+From the outside, my sister's version looked like wellness. She got up. She went to school. She did not spiral visibly. She did not lock herself in the bathroom hyperventilating before class or spend three hours reorganizing her desk drawers at midnight because the pencils were not sorted by length. She was the easy daughter, the uncomplicated one, the one nobody needed to worry about because she never gave them anything to see.
 
 What nobody saw was the drinking. Not hers, not then. Our mother's. The glass of wine on Friday that became two by Saturday, that became the bottle left open on the counter on Sunday evenings, the slight loosening of her face, the softening of her consonants. My sister saw all of it. She saw it the way she sees skin: with clinical precision, noting the texture, the discoloration, the places where something beneath the surface was starting to show.
 
 And she said nothing. She had learned, earlier than I did, that naming things in our family was not rewarded. I named things. I asked questions, demanded explanations, wanted reasons for the unreasonable. My sister watched me do this and watched it change nothing, and she drew her own conclusion: that the quieter you stayed, the less damage you absorbed. That being visible was a kind of exposure she could not afford.
 
-She was right, in a way. And the cost of being right was that nobody ever asked her how she was doing. Not really. Not past the surface. She presented as fine and the world took her at her word, because the world is lazy about the people who hold it together.
-
-Years later I would learn the word for what she carried. It was not a diagnosis, because she never went to get one. It was the weight of being the child who coped so well that no one noticed she was coping at all.
+She was right, in a way. And the cost of being right was that nobody ever asked her how she was doing. Not really. Not past the surface. She presented as fine and the world took her at her word.
 
 ---
 
@@ -97,7 +93,7 @@ She carried things I only noticed later. Bitten nails beneath her careful manicu
 
 She read poetry in the bathtub. I did not know this until I visited her apartment in my twenties and found a waterlogged copy of Mary Oliver wedged between the shampoo bottles. She saw me notice it and said nothing. I said nothing. There are certain revelations between sisters that survive only if no one speaks them aloud.
 
-She was not soft. People assumed she was because she worked with beauty, because her voice was calm, because she showed up and did what needed doing without theatrics. But a person who never falls apart is not a person who has nothing to fall apart about. She is a person who has decided that falling apart is a luxury she cannot afford.
+She was not soft. People assumed she was because she worked with beauty, because her voice was calm, because she showed up and did what needed doing without theatrics.
 
 ---
 
@@ -139,7 +135,7 @@ I watch her hands. The bitten nails. The precision of her movements. The way she
 
 "You look good," she says, and zips the case shut.
 
-Something moves between us. Not a word. Not an apology or a confession. Something quieter. The recognition that we survived the same house, the same parents, the same slow collapse, and became two people who can stand in the same bathroom and barely speak and still understand each other in the one way that matters, which is the way that does not require understanding at all.
+Something moves between us. Not a word. Not an apology or a confession. Something quieter.
 
 She picks up her iced coffee. Takes a long sip. Sets it down.
 
@@ -147,7 +143,7 @@ She picks up her iced coffee. Takes a long sip. Sets it down.
 
 I almost laugh. "I'll try."
 
-She lifts the case off the counter and turns to leave, and I see the dark circles beneath her eyes, faintly visible beneath the concealer she applied to herself this morning with the same steady hand she used on me. It occurs to me, watching her walk toward the door, that she has spent her entire adult life making other people's faces look the way she wishes hers could feel.
+She lifts the case off the counter and turns to leave, and I see the dark circles beneath her eyes, faintly visible beneath the concealer she applied to herself this morning with the same steady hand she used on me. I watch her walk toward the door.
 
 She pauses in the doorway. Does not turn around.
 

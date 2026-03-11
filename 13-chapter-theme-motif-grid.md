@@ -88,18 +88,15 @@
 |-----|-------|--------|--------|-----------|
 | 7 | The Uniform | T5, T6 | M6, M8 | 3. Investigation |
 | 8 | Public School | T2 | M5, M11, M14 | 3. Investigation |
-| 9 | The Party | T3, T4 | M3, M5 | 3. Investigation |
+| 9 | The Party | T3, T4, T8 | M3, M5, M6, M7, M14 | 3. Investigation |
 | 10 | Hollywood | T8, T9 | M6, M7, M11, M15 | 3. Investigation |
 | 11 | The Attention | T9, T10 | --- | 3. Investigation |
 | 12 | Mr. Burlingame | T2, T4, T13 | M1, M2, M3, M13 | 3. Investigation |
 
-**Observations:**
-- T11 (resilience) is entirely absent from Part II. This section is about searching and confusion, so its absence may be appropriate---but even a small moment of self-reliance here would foreshadow the later arc.
-- T12 (choosing love) is absent. Also appropriate for this section.
-- Ch. 11 (The Attention) has no identified motifs. Consider adding M6 (clothing as armor or vulnerability) or M7 (mirrors / being appraised).
-- M1 (olives) appears only at Mr. Burlingame in Part II. This is its first appearance---good placement.
-- M10 (horses) has not appeared yet. If horses are part of Olivia's adolescence, one appearance here would establish the motif before it recurs later.
-- M9 (candles/warmth) has not appeared yet. Consider an appearance in Ch. 8 or Ch. 9 (Olivia's bedroom, creating coziness from instability).
+**Notes:**
+- Ch. 9 T8: Constructing a person from clothing before the party (Hollister jeans, dark blue top, black Converse). M6: Outfit as identity construction. M7: Mirror (checking the constructed self). M14: Blue (the dark blue top, "a blue so dark it was almost black").
+- M10 (horses) first appears in Part I Ch. 6 (horse book). Its absence from Part II is appropriate---the motif recurs in Part III and IV.
+- M9 (candles/warmth) still absent from Part II. Consider adding to Ch. 8 or 9 in future revision.
 
 ---
 
@@ -107,20 +104,20 @@
 
 | Ch. | Title | Themes | Motifs | Arc Stage |
 |-----|-------|--------|--------|-----------|
-| 13 | The Good Marriage | T1, T2, T6 | M13 | 4. Darkness |
-| 14 | Barcelona | T5, T10 | M1, M2, M4 | 4. Darkness |
-| 15 | The Hospital | T3, T10 | M7, M8, M9 | 4. Darkness |
-| 16 | The Silence | T1, T3 | M12 | 4. Darkness |
-| 17 | The Jesuits | T5, T6, T7 | M8 | 5. Understanding |
+| 13 | The Good Marriage | T1, T2, T6 | M9, M13 | 4. Darkness |
+| 14 | Barcelona | T5, T8, T10 | M1, M2, M4, M6 | 4. Darkness |
+| 15 | The Hospital | T3, T8, T10 | M6, M7, M8, M9 | 4. Darkness |
+| 16 | The Silence | T1, T3 | M4, M12, M14 | 4. Darkness |
+| 17 | The Jesuits | T5, T6, T7 | M5, M8, M10 | 5. Understanding |
 | 18 | The Dialectic | T7, T11 | --- | 5. Understanding |
 
-**Observations:**
-- T9 (misogyny) is absent from the entire darkest section. This may be correct---the darkness here is internal (mental health, suicide) rather than external (exploitation). But Ch. 14 (Barcelona) could incorporate it if the female partner's departure involves gendered expectations.
-- T13 (adults as unreliable) is absent from Part III. Ch. 16 could incorporate it---the adults around Mark failed to prevent his suicide.
-- Ch. 18 (The Dialectic) has no identified motifs. Consider M2 (sunlight---a classroom window, intellectual illumination) or M8 (doors/thresholds---entering a new understanding).
-- M5 (music) is absent from the entire darkest section. Consider a strategic silence: the absence of music during the hospital chapter could itself be meaningful. Or add music to Ch. 17 (Jesuit college era).
-- M3 (alcohol) is absent from Part III. Given that self-medication is part of Olivia's story, its absence during hospitalization may be intentional (sobriety in clinical setting) or an oversight.
-- M1 (olives) appears in Barcelona (olive oil on bread). Good---this is its second appearance.
+**Notes:**
+- Ch. 13 M9: Votive candle in red glass holder at grandparents' Sunday dinner table, ritual of lighting.
+- Ch. 14 T8: Suitcase as self-portrait (linen blazer, cotton dresses, sandals, stolen scarf). M6: Clothing as the version of self she packed for Barcelona.
+- Ch. 15 T8: Hospital gown as identity stripped. M6: Gown replacing chosen clothes.
+- Ch. 16 M4: Sprinkler water on concrete, connected to lake and Barcelona. M14: Blue orientation packet, extended meditation on blue as color of distance.
+- Ch. 17 M10: Two horses at fence line below campus, connection to childhood horse book, metaphor about faith and holding still. M5: Jeff Buckley's Hallelujah.
+- Ch. 18 still has no identified motifs. Consider M2 or M8 in future revision.
 
 ---
 
@@ -129,18 +126,16 @@
 | Ch. | Title | Themes | Motifs | Arc Stage |
 |-----|-------|--------|--------|-----------|
 | 19 | The Boyfriend | T1, T12 | M5 | 6. Integration |
-| 20 | Fourteen Years | T11, T12 | --- | 6. Integration |
-| 21 | The Classroom | T2, T11 | --- | 6. Integration |
+| 20 | Fourteen Years | T8, T11, T12 | M6, M10 | 6. Integration |
+| 21 | The Classroom | T2, T8, T11 | M6 | 6. Integration |
 | 22 | The Master's Degree | T3, T11 | M8 | 6. Integration |
 | 23 | The Stalker | T9, T11 | --- | 6. Integration |
 
-**Observations:**
-- Three chapters (20, 21, 23) have no identified motifs. This section is the most motif-sparse in the book. Consider:
-  - Ch. 20: M2 (sunlight---the warmth of reunion), M13 (Northern California---where they reconnect?)
-  - Ch. 21: M8 (doors/thresholds---entering a classroom, a new life), M9 (candles/warmth---safety of the classroom)
-  - Ch. 23: M11 (phones/screens---how the stalking manifests?)
-- T7 (philosophy) is absent from Part IV. Olivia's philosophical framework should still be part of her thinking even as she moves into adulthood. Consider a brief reflection in Ch. 19 or Ch. 22.
-- T8 (fashion/identity) is absent. By this point Olivia may have settled into her identity---the absence could be intentional. But a brief moment in Ch. 20 (how she presents herself when reuniting with the fiance) would close the loop.
+**Notes:**
+- Ch. 20 T8: Getting dressed for the kitchen party as ritual/strategy (black dress, boots, hair down). M6: Outfit constructed to say "I am not trying." M10: Horse standing alone in Marin headlands on drive home, connected to childhood horse book.
+- Ch. 21 T8: Blazer as teaching armor. M6: Clothing as professional identity.
+- Ch. 23 still has no identified motifs. Consider M11 (phones/screens) in future revision.
+- T7 (philosophy) still absent from Part IV. Consider a brief reflection in Ch. 19 or 22.
 
 ---
 
@@ -148,16 +143,15 @@
 
 | Ch. | Title | Themes | Motifs | Arc Stage |
 |-----|-------|--------|--------|-----------|
-| 24 | The Toast | T1, T2, T13 | M3, M5 | 7. Choice |
+| 24 | The Toast | T1, T2, T8, T13 | M3, M5, M6, M12 | 7. Choice |
 | 25 | The Dance | T2 | M5 | 7. Choice |
 | 26 | The Fragments | T2, T7, T11 | M2, M13 | 7. Choice |
-| 27 | An Olive in the Sun | T1, T7, T11, T12 | M1, M2, M13 | 7. Choice |
+| 27 | An Olive in the Sun | T1, T3, T7, T11, T12 | M1, M2, M4, M6, M7, M13, M14 | 7. Choice |
 
-**Observations:**
-- T3 (mental health) is absent from the resolution. Olivia's mental health struggles don't disappear at the wedding. A brief moment of anxiety management in Ch. 24 or 27 (her OCD surfacing, her recognizing it, choosing to let it be) would honor the full arc.
-- M6 (clothing) is absent from the reception. The wedding dress---the most important garment in the book---should appear at least once more here. A detail in Ch. 24 or Ch. 26 (the weight of the dress, a stain, removing the veil) would complete the motif.
-- M12 (empty chairs) could appear one final time in Ch. 26 (The Fragments)---Olivia surveying the room and noticing who is and isn't there.
-- M1 (olives) culminates beautifully in Ch. 27. Its three prior appearances (Ch. 12, Ch. 14, and the venue's olive trees as setting) are sufficient.
+**Notes:**
+- Ch. 24 T8: Reading what guests wear as text (grandmother's navy/pearl, grandfather's tailored suit, Jess's green silk, Rachel's structured black, sister's lavender). M6: Clothing observations carry subtext about each person. M12: Mother looking at the empty chair during the toast (Mark's absence).
+- Ch. 27 M7: Reflection in glass door, connecting to all previous mirror moments. M4: Condensation on stone railing. M6: Wine-stained dress, the dress as final garment in the motif. M14: Amber-to-violet sky, purple-blue-gold of healing bruise. T3: OCD counting leaves, pressing thumbnail, the machinery running---and choosing to let it run.
+- M1 (olives) culminates in Ch. 27. Its appearances (Ch. 12, Ch. 14, Ch. 27) are well-paced.
 
 ---
 
@@ -167,12 +161,12 @@
 |-------|--------|---------|----------|---------|--------|-------|-------|
 | T1 Generational patterns | Ch. 1 | --- | Ch. 13, 16 | Ch. 19 | Ch. 24, 27 | 5 | Gap in Part II (appropriate) |
 | T2 Fragmented role models | Ch. 2, 3 | Ch. 8, 12 | --- | Ch. 21 | Ch. 24, 25, 26 | 7 | Absent from Part III (worth noting) |
-| T3 Mental health | Ch. 6 | Ch. 9 | Ch. 15, 16 | Ch. 22 | --- | 5 | **Absent from Part V** |
+| T3 Mental health | Ch. 6 | Ch. 9 | Ch. 15, 16 | Ch. 22 | Ch. 27 | 6 | Now present in Part V (OCD counting, choosing to let it run) |
 | T4 Self-medication | Ch. 2, 5, 6 | Ch. 9, 12 | --- | --- | --- | 5 | Drops off after Part II (intentional?) |
 | T5 Queerness | --- | Ch. 7 | Ch. 14, 17 | --- | --- | 3 | Concentrated in middle; absent from resolution |
 | T6 Tradition vs. experience | --- | Ch. 7 | Ch. 13, 17 | --- | --- | 3 | Narrow distribution |
 | T7 Philosophy | Ch. 1 | --- | Ch. 17, 18 | --- | Ch. 26, 27 | 4 | Gap in Parts II and IV |
-| T8 Fashion/identity | --- | Ch. 10 | --- | --- | --- | 1 | **Only one chapter---severely underrepresented** |
+| T8 Fashion/identity | Ch. 6 | Ch. 9, 10 | Ch. 14, 15 | Ch. 20, 21 | Ch. 24 | 9 | Now threads through all five parts |
 | T9 Misogyny | --- | Ch. 10, 11 | --- | Ch. 23 | --- | 3 | Concentrated in Part II |
 | T10 Body as trauma/healing | Ch. 3, 4 | Ch. 11 | Ch. 14, 15 | --- | --- | 5 | Absent from Parts IV and V |
 | T11 Resilience | --- | --- | Ch. 18 | Ch. 20, 21, 22, 23 | Ch. 26, 27 | 6 | Absent from Parts I and II (appropriate---builds) |
@@ -185,32 +179,39 @@
 
 | Motif | Part I | Part II | Part III | Part IV | Part V | Total | Notes |
 |-------|--------|---------|----------|---------|--------|-------|-------|
-| M1 Olives | --- | Ch. 12 | Ch. 14 | --- | Ch. 27 | 3 | Well-paced. Consider adding venue olive trees in Ch. 6 or 13. |
+| M1 Olives | --- | Ch. 12 | Ch. 14 | --- | Ch. 27 | 3 | Well-paced across three parts. |
 | M2 Sunlight | Ch. 1, 4 | Ch. 12 | Ch. 14 | --- | Ch. 26, 27 | 5 | Good distribution. Gap in Part IV. |
-| M3 Alcohol | Ch. 2, 5, 6 | Ch. 9, 12 | --- | --- | Ch. 24 | 5 | Absent from darkest section. Champagne at wedding fills gap. |
-| M4 Water | Ch. 4 | --- | Ch. 14 | --- | --- | 2 | **Underrepresented. Add to Part II or V.** |
-| M5 Music | --- | Ch. 8, 9 | --- | Ch. 19 | Ch. 24, 25 | 4 | Absent from Parts I and III. |
-| M6 Clothing | Ch. 1, 2, 3 | Ch. 7, 10 | --- | --- | --- | 5 | **Clusters in early chapters, vanishes after Part II.** |
-| M7 Mirrors | Ch. 1, 2, 3 | Ch. 10 | Ch. 15 | --- | --- | 5 | Clusters in Part I. Add to Part V (final reflection?). |
+| M3 Alcohol | Ch. 2, 5, 6 | Ch. 9, 12 | --- | --- | Ch. 24 | 5 | Absent from darkest section (intentional). |
+| M4 Water | Ch. 4 | --- | Ch. 14, 16 | --- | Ch. 27 | 4 | Now in three parts. Ch. 16 sprinkler connects to lake and Barcelona. Ch. 27 condensation on railing. |
+| M5 Music | --- | Ch. 8, 9 | Ch. 17 | Ch. 19 | Ch. 24, 25 | 5 | Now present in Part III (Jeff Buckley, Ch. 17). |
+| M6 Clothing | Ch. 1, 2, 3, 6 | Ch. 7, 9, 10 | Ch. 14, 15 | Ch. 20, 21 | Ch. 24, 27 | 13 | Now threads through all five parts. Wedding dress completes motif in Ch. 27. |
+| M7 Mirrors | Ch. 1, 2, 3, 6 | Ch. 9, 10 | Ch. 15 | --- | Ch. 27 | 8 | Now bookends the story: first mirror in Ch. 1, final reflection in Ch. 27 glass door. |
 | M8 Doors/thresholds | --- | Ch. 7 | Ch. 15, 17 | Ch. 22 | --- | 4 | Absent from Parts I and V. |
-| M9 Candles/warmth | --- | --- | Ch. 15 | --- | --- | 1 | **Severely underrepresented. Needs 2--4 more appearances.** |
-| M10 Horses | --- | --- | --- | --- | --- | 0 | **Never placed. Needs at least 3 appearances.** |
-| M11 Phones/screens | --- | Ch. 8, 10 | --- | --- | --- | 2 | **Underrepresented. Add to Parts I and IV.** |
-| M12 Empty chairs | Ch. 6 | --- | Ch. 16 | --- | --- | 2 | **Needs 1--2 more. Add to Part V.** |
+| M9 Candles/warmth | --- | --- | Ch. 13, 15 | --- | --- | 2 | Added votive at grandparents' dinner (Ch. 13). Still concentrated in Part III. |
+| M10 Horses | Ch. 6 | --- | Ch. 17 | Ch. 20 | --- | 3 | Three-chapter thread: horse book (Ch. 6), campus fence (Ch. 17), Marin headlands (Ch. 20). |
+| M11 Phones/screens | --- | Ch. 8, 10 | --- | --- | --- | 2 | Still underrepresented. Consider adding to Parts I and IV. |
+| M12 Empty chairs | Ch. 6 | --- | Ch. 16 | --- | Ch. 24 | 3 | Now in three parts. Ch. 24: mother looking at Mark's empty chair during toast. |
 | M13 NorCal landscape | Ch. 1 | Ch. 12 | Ch. 13 | --- | Ch. 26, 27 | 4 | Good distribution. Gap in Part IV. |
-| M14 Colors | --- | Ch. 8 | --- | --- | --- | 1 | **Severely underrepresented. Needs 2--4 more.** |
-| M15 Films | --- | Ch. 10 | --- | --- | --- | 1 | **Severely underrepresented. Needs 2--4 more.** |
+| M14 Colors | Ch. 1, 4, 6 | Ch. 8, 9 | Ch. 16 | --- | Ch. 27 | 7 | Now threads through four parts. Pink (childhood), blue (distance/danger), purple/violet (integration in Ch. 27). |
+| M15 Films | --- | Ch. 10 | --- | --- | --- | 1 | Still only one chapter. Consider adding or demoting to occasional reference. |
 
 ---
 
-## CRITICAL GAPS TO ADDRESS
+## CRITICAL GAPS: STATUS
 
-1. **T8 (Fashion/identity)** appears in only one chapter. The theme document and motif document both emphasize fashion as a major thread. Add fashion moments to at least Ch. 6 (clothing as wedding-day armor), Ch. 14 (Barcelona style), and Ch. 20 (how Olivia presents herself at the reunion).
+1. ~~**T8 (Fashion/identity)**~~ **ADDRESSED.** Now appears in 9 chapters across all five parts (Ch. 6, 9, 10, 14, 15, 20, 21, 24). Threads from childhood armor through Barcelona self-portrait, hospital gown, reunion strategy, teaching blazer, and reading guests' clothing at the reception.
 
-2. **M10 (Horses)** has zero chapter placements despite being listed as a significant motif. Decide: is horseback riding part of adolescence (Part II), recovery (Part IV), or the wedding setting? Place at least 3 appearances.
+2. ~~**M10 (Horses)**~~ **ADDRESSED.** Three appearances: horse book (Ch. 6), horses at campus fence (Ch. 17), lone horse in Marin headlands (Ch. 20). Thread moves from childhood reading to embodied metaphor for trust and faith.
 
-3. **M9 (Candles/warmth)** has one appearance. The motif document describes it as central to Olivia's identity. Add to Ch. 3 (the sister's cozy aesthetic?), Ch. 9 (Olivia's bedroom), and Ch. 26 or 27 (warm light at the reception).
+3. **M9 (Candles/warmth)** partially addressed. Now 2 appearances (Ch. 13 votive at grandparents' dinner, Ch. 15 hospital). Consider adding a reception candle moment in Ch. 26 or 27 for a third appearance.
 
-4. **M14 (Colors) and M15 (Films)** each appear once. Either commit to weaving them throughout (add 2--3 appearances each) or demote them from "recurring motifs" to "occasional references" in the motif document.
+4. ~~**M14 (Colors)**~~ **ADDRESSED.** Now 7 appearances across four parts. Pink (Ch. 1 childhood), blue (Ch. 4 lake, Ch. 6 Mark's moods, Ch. 9 dark blue top, Ch. 16 orientation packet/meditation on blue as distance), purple/violet (Ch. 27 healing-bruise sky). **M15 (Films)** still appears only once (Ch. 10). Consider adding or demoting to occasional reference.
 
-5. **M4 (Water)** appears only twice despite being listed as a core motif. Add to Ch. 9 (tears? emotional flooding?), Ch. 16 (grief), or the wedding setting.
+5. ~~**M4 (Water)**~~ **ADDRESSED.** Now 4 appearances across three parts (Ch. 4 lake, Ch. 14 Barcelona, Ch. 16 sprinkler connecting to lake and Barcelona, Ch. 27 condensation on railing).
+
+## REMAINING GAPS
+
+- **M11 (Phones/screens):** 2 appearances, both in Part II. Consider adding to Parts I and IV.
+- **M15 (Films):** 1 appearance. Decide whether to commit or demote.
+- **M8 (Doors/thresholds):** Absent from Parts I and V. The final chapter's door could count as a threshold moment.
+- **T3 (Mental health) in Part V:** Now addressed in Ch. 27 (OCD counting leaves, pressing thumbnail, choosing to let the machinery run).
