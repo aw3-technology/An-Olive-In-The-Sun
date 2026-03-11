@@ -113,10 +113,12 @@ It would not. Some things you have to build yourself. From whatever materials ar
 
 The officiant finishes arranging. He steps back from the lectern and surveys the altar the way a carpenter surveys a joint: checking for alignment, for balance, for the small imperfections that only the builder would notice. The script is laid out. The microphone is positioned. The ceremony has its architecture now, its framework of words and gestures that will carry us through the next hour.
 
-I watch him and I think about all the frameworks I have lived inside. The Catholic school. The theology classroom. The Jesuit campus with its crucifixes and its careful silences. The philosophy seminar where a question on a chalkboard rearranged the furniture of my mind. Hegel's dialectic, which gave me a way to hold contradiction without being destroyed by it. None of them was complete. None of them was wrong. Each one was a room I walked into looking for something I needed and walked out carrying something I had not expected.
+I watch him and I think about all the frameworks I have lived inside. The Catholic school. The theology classroom. The Jesuit campus with its crucifixes and its careful silences. The philosophy seminar where a question on a chalkboard rearranged the furniture of my mind. The dialectic, which gave me a way to hold contradiction without being destroyed by it. None of them was complete. None of them was wrong. Each one was a room I walked into looking for something I needed and walked out carrying something I had not expected.
 
-Belief, I think, is not a gift you receive once. It is a choice you make every morning. You wake up and you decide what to trust, and the deciding is the belief, and you do it again the next day, and the day after that, and some mornings it is easy and some mornings it feels like trying to hold water in your hands and some mornings you just stand in the shower and let the hot water hit your back and hope that the willingness to stand there counts for something.
+The altar is set. The ceremony is waiting.
 
-The altar is set. The ceremony is waiting. In a few minutes someone will ask me if I believe in this enough to say it out loud.
+Through the arch at the far end of the aisle, I see Will step into place beside the officiant. He stands with his hands clasped in front of him, his shoulders square, his weight settled. The collar of his shirt is slightly off, pressed wrong on one side, and the imperfection holds me for a moment, the way a single wrong note in a familiar song makes you listen harder.
+
+In a few minutes someone will ask me if I believe in this enough to say it out loud.
 
 I look at the lectern, at the seven smooth pages of someone else's script, and I touch the folded paper in my pocket. One page. My own words. Not a liturgy. Not a framework. Just the best I have.

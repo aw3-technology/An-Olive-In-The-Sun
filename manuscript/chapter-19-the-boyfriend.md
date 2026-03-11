@@ -59,7 +59,7 @@ I understood it. That is what made it so hard to fight. I understood that his ne
 
 And I was no better. My grief over Mark, still unnamed, still unprocessed, had turned into something adhesive. I clung to Will the way a person clings to a piece of wreckage in open water, not because the wreckage is comfortable but because the alternative is the sea. He was my proof that love existed. That someone could look at me, at all of it, the anxiety and the counting and the way I sometimes could not leave a room without checking the lock four times, and still choose to stay.
 
-We needed each other in a way that felt like devotion and was actually desperation. Two people drowning and using each other as life rafts and wondering why they kept going under.
+We needed each other in a way that felt like devotion and was actually desperation.
 
 The fights. I should talk about the fights.
 
@@ -67,7 +67,7 @@ They were not about anything. They were about everything. He came home and I was
 
 One night in November, the second year, we fought for three hours about whether I had been flirting with someone at a party. I had not been. It did not matter. The fight was never about the party. The fight was about the fact that I had been happy for twenty minutes without him, and he experienced my happiness without him as evidence that I did not need him, and he experienced not being needed as the first step toward being left.
 
-I tried to explain this. I used words I had learned in philosophy class, words like "projection" and "attachment" and "the dialectic of need and autonomy." He threw a coffee mug at the wall. Not at me. At the wall. The distinction mattered. It was the thinnest of lines, but it held. The mug shattered and coffee ran down the white paint in a long brown streak and we stood there staring at it and the silence afterward was the loudest sound I had ever heard.
+I tried to explain this. I used words I had learned in philosophy class, words like "projection" and "attachment" and "codependence." He threw a coffee mug at the wall. Not at me. At the wall. The distinction mattered. It was the thinnest of lines, but it held. The mug shattered and coffee ran down the white paint in a long brown streak and we stood there staring at it and the silence afterward was the loudest sound I had ever heard.
 
 We loved each other the way you love a bonfire. Completely. With your whole body turned toward the heat. With no understanding of how to keep it from burning down the field.
 
@@ -83,19 +83,7 @@ I did not call him. He did not call me. The silence between us lasted fourteen y
 
 It was not the clean silence of closure. It was the jagged, unfinished silence of two people who stopped talking mid-sentence and never found their way back to it. His name became a bruise I learned not to press. Some mornings I would wake up and for a few seconds not remember, and then the remembering would arrive like the tide, filling the space that sleep had briefly emptied.
 
-I dated other people. Nadia, in Barcelona, who taught me that independence without intimacy was its own kind of prison. A man in graduate school whose name I sometimes forget, which tells you everything about what that was. Brief entanglements that never quite caught, relationships I entered sideways and left through the back door, always with the vague sense that I was rehearsing for something I had already failed at.
-
-Years passed. I got sick. I got diagnosed. I got medicated. I got a degree. I got a classroom. I built a life out of the materials available, the way you build a house on a lot that everyone told you was unbuildable: slowly, stubbornly, with the full knowledge that the soil was bad and the foundation might shift.
-
-And underneath all of it, so quiet I almost convinced myself it wasn't there: the scar. The place where Will had been. It healed the way all scars heal, from the outside in, the surface closing over while the deeper tissue took its own slow time. I could go weeks, months, without thinking about him. And then the weather would change, or I would hear a song from that year, or someone in a coffee shop would laugh the way he laughed, the sudden, surprised bark of it, and the scar would ache the way old injuries ache before a storm. Not pain, exactly. Memory. The body refusing to forget what the mind had agreed to release.
-
-I did not know he was getting sober. I did not know he was in therapy, sitting in a chair across from a stranger, learning the names for the things he had done and the things that had been done to him. I did not know he had chosen architecture because he wanted to build things that lasted, and that the irony of this was not lost on him. I did not know he kept a journal, or that he sketched floor plans when he was anxious, giving structure to the formless dread the same way I gave it numbers and sequences and locks checked four times.
-
-I did not know any of this because I did not ask. Because asking would have required reaching across fourteen years of silence, and I had survived the silence by telling myself it was a wall, when it was really just a distance, and distances can be crossed by anyone willing to take the first step.
-
-Neither of us took it.
-
-The universe, as it turned out, had other plans. But that is the next chapter, or the chapter after. The reunion. The kitchen and the olive oil and the slow, deliberate work of two people learning to walk toward each other instead of falling.
+Years passed. The silence lasted. Underneath it, so quiet I almost convinced myself it wasn't there: the scar. The place where Will had been. I could go months without thinking about him. And then someone in a coffee shop would laugh the way he laughed, the sudden, surprised bark of it, and the scar would ache the way old injuries ache before a storm. The body refusing to forget what the mind had agreed to release.
 
 What matters now is this: the boy who threw the coffee mug is standing at the end of the aisle. He is thirty-four years old and his jaw is tight and his hands are steady and he chose architecture because he wanted to build things that lasted.
 

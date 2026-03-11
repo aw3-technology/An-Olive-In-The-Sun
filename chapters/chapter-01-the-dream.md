@@ -11,7 +11,7 @@ Everyone sat in neat rows of white folding chairs. My grandparents, my parents, 
 
 A string quartet played Pachelbel's Canon, the cello line repeating beneath the violins like a heartbeat that refuses to change its mind. The kind of music that assumes an ending worth arriving at.
 
-I stood at the altar in a white dress that felt heavy, holding a bouquet that was wrong — not flowers but a bundle of old paperbacks, cracked spines and yellowed pages, held together with a rubber band. No one seemed to notice. My hands rested folded around them, and I remember staring down because I could not bring myself to look up.
+I stood at the altar in a white dress that felt heavy, holding a bouquet that was wrong. Not flowers but a bundle of old paperbacks, cracked spines and yellowed pages, held together with a rubber band. No one seemed to notice. My hands rested folded around them, and I remember staring down because I could not bring myself to look up.
 
 A long silence followed.
 
@@ -33,7 +33,7 @@ Of course it would fall apart.
 
 ---
 
-I sit up gasping, palms pressing hard into the mattress as if I need to prove it is solid. My shirt clings damp against my back. I reach for my phone on the nightstand — not to check anything, just to hold something real.
+I sit up gasping, palms pressing hard into the mattress as if I need to prove it is solid. My shirt clings damp against my back. I reach for my phone on the nightstand. Not to check anything. Just to hold something real.
 
 Then the day lands on me like a hand on my shoulder.
 
@@ -47,9 +47,9 @@ My dress hangs across the room on the closet door, sheathed in a thin plastic ga
 
 White fabric. Lace sleeves.
 
-Marriage. The word still feels slightly unreal. Something that happens to other people — people like my college roommate, whose parents still slow-danced in the kitchen on Friday nights and called each other "hon" without irony. People who could say the word *forever* without their voice tightening around it.
+Marriage. The word still feels slightly unreal. Something that happens to other people. People like my college roommate, whose parents still slow-danced in the kitchen on Friday nights and called each other "hon" without irony. People who could say the word *forever* without their voice tightening around it.
 
-I picture my mother down the hall, already dressed, a printed timeline of the day spread across her knees, her hands folded in her lap the way she always folds them —
+I picture my mother down the hall, already dressed, a printed timeline of the day spread across her knees, her hands folded in her lap the way she always folds them.
 
 Her hands were folded exactly like that the afternoon they told us.
 
@@ -97,7 +97,11 @@ I did not cry.
 
 I just sat there, staring at the sunlight on the table, while something inside me grew very calm.
 
-That afternoon reshaped my expectations for the rest of my life. When your first model of love dissolves, you begin to assume that everything else will eventually do the same.
+She cried and I went still. That was the first draft of who we would each become.
+
+Years later, I would learn that my father's parents had also divorced. Forty years of marriage, then nothing. Two generations of women who stood at altars and meant it, and it didn't matter. The pattern was already set before I understood what patterns were.
+
+That afternoon at the kitchen table, I did not know any of this. I only knew that the ground had shifted and no one was going to put it back.
 
 ---
 
@@ -109,17 +113,25 @@ The sun has risen now, turning the thin hotel curtains a pale, glowing yellow. I
 
 Somewhere below, someone is testing speakers at the venue. A short burst of music, then silence again.
 
-The wedding is already assembling itself. Tables, flowers, chairs — all the small details people construct with such care to create the appearance of permanence.
+The wedding is already assembling itself. Tables, flowers, chairs. All the small details people construct with such care to create the appearance of permanence.
 
 My phone lights up on the nightstand. I pick it up, scroll through, set it down. Pick it up again. Messages from friends, bridesmaids, distant relatives already arriving at the venue. Someone has sent a photo of the reception space. Rows of long wooden tables beneath white canvas tents. Glass jars filled with dried flowers. Pale blue napkins folded into careful triangles.
 
 It looks beautiful in the way wedding spaces always look beautiful before people arrive to fill them with their histories.
 
+A text from my sister: *I'm coming up with coffee. Don't spiral without me.*
+
+I almost smile. She knows me the way only someone who grew up in the same wreckage can. She became an esthetician. I studied philosophy. Two daughters of the same chaos choosing different tools for the same job: surviving it.
+
+Then another text, from Will: *Still here. Still showing up. Coffee's on me after.*
+
+Simple. Warm. The voice of a man who says less than he means. I press my thumb against the screen as if I could feel the warmth of the words. He is in another room in this hotel. Getting dressed. Drinking coffee. Being steady in a way that still surprises me after all this time.
+
 My eyes drift back toward the dress.
 
 The lace sleeves catch the morning light, glowing faintly against the wall.
 
-In my family, marriage has always functioned less as a destination and more as a temporary arrangement. My stepfather arrived later, bringing with him a new kind of instability that I would spend years trying to understand. For most of my life, love and impermanence have felt like the same thing.
+In my family, marriage has always functioned less as a destination and more as a temporary arrangement. My grandparents lasted forty years and still couldn't hold. My parents lasted five. My stepfather arrived later, bringing with him a new kind of instability that I would spend years trying to understand. For most of my life, love and impermanence have felt like the same thing.
 
 Which is why the dream did not feel strange.
 
@@ -129,7 +141,11 @@ Of course he would not show up.
 
 Of course the story would end the same way the others had.
 
+In a philosophy seminar sophomore year, I read Hegel for the first time. Thesis, antithesis, synthesis. The idea that progress comes through contradiction. I remember sitting in the lecture hall thinking that if conflict was what drove history forward, my life was practically a masterpiece. It was easier to believe in a classroom. It is harder to believe in a hotel room at six in the morning, staring at a wedding dress, your hands still shaking from a dream.
+
 But I am here. The dress is here. The vineyard is filling with light.
+
+Below the hotel, past the rows of vines, a stand of olive trees catches the first sun. Their trunks are twisted and low. They look like they grew despite everything.
 
 And somewhere beneath the nervous dread of the morning, beneath the memories and half-formed fears, there is something I cannot yet name.
 

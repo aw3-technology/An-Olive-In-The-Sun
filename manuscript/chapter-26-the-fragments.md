@@ -77,7 +77,7 @@ She did not show me how to stay when it got hard. She could not. When I was sick
 
 Freedom without vulnerability is its own kind of enclosure. Nadia built a beautiful life inside it. I could not live there. Not because I was braver but because I was needier, and the neediness, which I spent years being ashamed of, turned out to be the thing that kept me reaching for people instead of running from them.
 
-I think about the philosophy. Not any specific text, not Hegel, not the dialectic, not the professor with his chalk and his Tuesday afternoon lectures. Just the act of thinking itself. The years I spent learning to take the formless weight of what I felt and give it structure. The frameworks and the terminology and the careful, rigorous habit of asking why. Why did the marriage fail. Why did the drinking start. Why did the hand go into the propeller. Why did the silence follow the death the way weather follows the season, inevitably, without malice.
+I think about the philosophy. Not any specific text, not the dialectic, not the professor with his chalk and his Tuesday afternoon lectures. Just the act of thinking itself. The years I spent learning to take the formless weight of what I felt and give it structure. The frameworks and the terminology and the careful, rigorous habit of asking why. Why did the marriage fail. Why did the drinking start. Why did the hand go into the propeller. Why did the silence follow the death the way weather follows the season, inevitably, without malice.
 
 Philosophy showed me how to think about suffering without drowning in it. It gave me a language for contradiction, for the fact that two opposing things can both be true, that a person can love you and leave you and both of those are real.
 
@@ -133,7 +133,7 @@ I do not raise my glass. I do not need to. Something passes between us that is n
 
 I do not count anything in this moment.
 
-The machinery is still running. It is always running. The low hum beneath the surface, the counting, the checking, the loops that tighten and release, tighten and release, the brain that never fully rests. But in this moment, standing in a purple room full of fragments, holding a glass of wine I will not finish, wearing a dress that weighs exactly what it should, I do not count.
+The machinery is still running. It always is. But in this moment, I do not count.
 
 I just stand here. In the room I built from what I was given.
 

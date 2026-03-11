@@ -47,7 +47,7 @@ And for a while, it did. More than that. For a while, it was beautiful.
 
 ---
 
-I need to tell you about the city, because the city is part of the story. Not background. Character.
+The city is part of the story.
 
 We walked everywhere. Barcelona is a city that asks you to look up, and I had spent most of my life looking down, scanning the ground in front of me, watching for what might go wrong. But Gaudi's buildings made looking down impossible. The Sagrada Familia rose above the neighborhood like something from a fever dream, its spires reaching and reaching, covered in carved fruit and stone animals and stained glass that threw color across the floor in pools of red and gold and violet that moved with the sun. I stood inside it with my neck craned back and my mouth slightly open and I felt something I did not have a word for. Not awe, exactly. Recognition. As though someone had built the inside of my mind and hung it with light.
 
@@ -151,11 +151,11 @@ I sat at that table for an hour. I ate both slices. I ordered more bread and mor
 
 The sun moved across the table. The shadows of the awning shifted. People walked past on the sidewalk, their voices rising and falling in Catalan and Spanish and the occasional bright burst of English, the sound of a city that did not care about my grief, that was not interested in my story, that would continue exactly as it was whether I sat at this table or disappeared entirely.
 
-I thought about what Nadia had said. That she wasn't ready. That she wished me well. I thought about my father, who had also not been ready. About Mark, who had been ready for everything except staying alive. About my mother, who was ready for everything except tenderness. About my grandparents, who were ready for marriage but not for the conversations that might have made it honest.
+I thought about what Nadia had said. That she wasn't ready. That she wished me well.
 
 Everyone had been ready for something. Just never the thing I needed.
 
-The olive oil pooled in the rough surface of the bread. I watched it settle into the small craters and crevices the way water finds the lowest ground, patient and without ambition, filling what was empty because that is what oil does. I thought about how the body, stripped of everything, reduced to fever and solitude and the basic animal need for fuel, will still reach for something nourishing. Will still sit down at a table and tear bread and eat.
+The olive oil pooled in the rough surface of the bread. I watched it settle into the small craters and crevices the way water finds the lowest ground, patient and without ambition, filling what was empty because that is what oil does. The body, stripped of everything, will still reach for something nourishing. Will still sit down at a table and tear bread and eat.
 
 This is what I learned in Barcelona, though I would not have called it learning at the time. At the time I would have called it surviving, which is what I called everything, because my family had taught me that surviving was the highest aspiration, the thing you did when all other options had been exhausted. But it was more than that. It was the first time I fed myself when no one was watching. The first time I sat alone with my own hunger and answered it without waiting for someone else to notice.
 

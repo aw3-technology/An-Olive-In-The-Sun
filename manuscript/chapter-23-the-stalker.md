@@ -1,7 +1,7 @@
 # Chapter 23
 ## The Stalker
 
-My phone buzzes in my clutch. I almost don't check it. I have checked it eleven times in the last hour, which I know because I have been counting, because I always count, because the counting is the tax my brain charges for the privilege of existing in a body at a party.
+My phone buzzes in my clutch. I almost don't check it. I have checked it eleven times in the last hour.
 
 I check it.
 
@@ -163,13 +163,13 @@ The restraining order came through in March. A process that required a lawyer, a
 
 The car did not appear again.
 
-Kylie Tierney finished the year. She turned in her final essay on *The Great Gatsby*, four pages, double-spaced, a careful analysis of Gatsby's inability to distinguish between the person he loved and the idea of her. She earned a B plus. She transferred to another school the following fall. I never learned whether she knew. I hope she didn't. I hope the architecture of her father's obsession remained invisible to her, the way the architecture of my own family's chaos had remained invisible to me for years, a structure I lived inside without knowing it had a name.
+Kylie Tierney finished the year. She turned in her final essay on *The Great Gatsby*, four pages, double-spaced, a careful analysis of the green light and what Gatsby lost by reaching for it. She earned a B plus. She transferred to another school the following fall. I never learned whether she knew. I hope she didn't. I hope the architecture of her father's obsession remained invisible to her, the way the architecture of my own family's chaos had remained invisible to me for years, a structure I lived inside without knowing it had a name.
 
 After the order, I stayed. I kept teaching. I kept parking in the lot, though I varied the spot for another year before I caught myself doing it and made myself stop. Deliberate. A choice. Pulling into the same space two days in a row as an act of defiance so small no one noticed it but me.
 
 I kept running my route. Three miles through the neighborhood. Past the pick-up area. Past the basketball courts. My legs carrying me through the same streets he had contaminated with his attention, reclaiming them step by step, the way you reclaim a room after someone has been in it without permission: you open the windows, you move the furniture, you sit in it until it feels like yours again.
 
-It never fully felt like mine again. That is the honest part. The parking lot was my parking lot and the classroom was my classroom and the run was my run, but there was a residue, a thin film of alertness that would not wash off. I checked the lot from my window for the rest of that year and the year after. I locked my classroom door when I worked late. I carried my keys between my fingers in the dark, the metal teeth pointed out, the way every woman I know carries her keys, the posture of a species that has been taught, through a million small lessons, that the walk to the car is never just a walk to the car.
+It never fully felt like mine again. That is the honest part. The parking lot was my parking lot and the classroom was my classroom and the run was my run, but there was a residue, a thin film of alertness that would not wash off. I checked the lot from my window for the rest of that year and the year after. I locked my classroom door when I worked late. I carried my keys between my fingers in the dark, the metal teeth pointed out, the way every woman I know carries her keys, the posture of every woman I have ever known, taught through a million small lessons that the walk to the car is never just a walk to the car.
 
 ---
 

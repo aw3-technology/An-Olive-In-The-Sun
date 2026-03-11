@@ -7,7 +7,7 @@ I lock the door and lean against it, just for a second, just to feel something s
 
 The mirror over the sink shows me what I expected. My makeup is holding. My hair, which my sister pinned with four small clips this morning, has not moved. My lipstick is still close to the color it started as. From a distance, from across a reception hall, from the angle of a photograph, I look fine. But the eyes are tired. Not tired in the way people say they are tired, meaning busy or overwhelmed. Tired in the way that lives behind the face, in the muscles that hold the smile in place, in the small effort of meeting every gaze with the appropriate expression. I have been smiling for four hours. My cheeks ache with it.
 
-I turn on the faucet and run cold water over my wrists. The shock of it travels up my arms. I count to four. Hold. Count again. The ritual is so old I barely notice it anymore, the way you stop noticing a ring on your finger or the weight of a watch. Four is the number. It has always been four. I do not know why. The why has never mattered. What matters is that it works, or that it feels like it works, which in the economy of my brain amounts to the same thing.
+I turn on the faucet and run cold water over my wrists. The shock of it travels up my arms. I count to four. Hold. Count again.
 
 I check my hair again. Adjust a pin that does not need adjusting. I look at my face in the mirror, tilt my head, look again. No one out there is studying me the way I am studying myself. No one is cataloguing the faint crease where the concealer has settled into a line, or the way my left eye looks slightly more shadowed than my right. I know this. I know it the way I know the stove is off, the way I know the door is locked, the way I know the ceiling will not collapse. Knowing has never been the problem. My body does not trade in knowledge. It trades in repetition, in the insistence that one more check, one more look, one more count, will close the circuit and let me move on. I check again. Then I dry my wrists on the hand towel and straighten my dress and prepare to walk back out.
 
@@ -67,7 +67,7 @@ I wanted to belong there. I did not feel I had earned the right.
 
 The low point was a Wednesday in November.
 
-It was raining. This is not a metaphor. It was actually raining, the kind of steady Northern California rain that does not stop or intensify but simply continues, undramatic and relentless, the way most hard things in life actually happen.
+It was raining, the kind of steady Northern California rain that does not stop or intensify but simply continues, undramatic and relentless, the way most hard things in life actually happen.
 
 I was in the library at nine p.m. The fluorescent lights cast their flat, institutional glow over the carrels and the bookshelves and the industrial carpet that smelled faintly of dust and coffee. My laptop was open. My thesis proposal was due in two weeks. I had written four pages and deleted three of them.
 
@@ -115,7 +115,7 @@ I finished the thesis in April.
 
 The last paragraph was written at my kitchen table at one in the morning with a mug of cold tea beside my laptop and the neighbor's dog barking through the wall. I typed the final sentence, read it back, changed a word, changed it back, and then sat there for a long time looking at the screen.
 
-Seventy-eight pages. Eight months of research. A study on trauma-informed teaching practices in Title I schools. The irony of the topic was not lost on me. I had chosen to write about how teachers should recognize and respond to students who were carrying invisible damage, and I had written it while carrying my own invisible damage into the library every evening, taking my medication in the bathroom between sessions, performing functionality like a costume I could not take off.
+Seventy-eight pages. Eight months of research. A study on trauma-informed teaching practices in Title I schools. I had chosen to write about how teachers should recognize and respond to students who were carrying invisible damage, and I had written it while carrying my own invisible damage into the library every evening, taking my medication in the bathroom between sessions, performing functionality like a costume I could not take off.
 
 The defense was in May. Three professors at a conference table. Questions I had prepared for, and a few I had not. I answered them the way I answered everything in that program: carefully, competently, with the slight delay of a person translating her thoughts through a layer of chemical moderation before they reached her mouth. They passed me. One of them shook my hand and said congratulations and I said thank you and the word felt like a stone I was holding in my palm, smooth and real and surprisingly heavy.
 
@@ -129,7 +129,7 @@ It was not proof that any of those things were resolved. They sat beside the dip
 
 I straighten my dress. Smooth the fabric over my hips. Check the mirror one more time.
 
-The woman looking back is not the woman in the library carrel. She is older. Her makeup is better. She has learned to hold the smile longer, to let the performance run on its own fuel, to ration her energy across the hours of a day that requires her to be present for everyone while her body quietly asks to lie down.
+The woman looking back is not the woman in the library carrel. She is older. Her makeup is better. She has learned to hold the smile longer, to ration her energy across the hours of a day that requires her to be present for everyone while her body quietly asks to lie down.
 
 She is also still that woman. That will always be true. The one who nearly quit. The one who stayed for no good reason. The one who wrote bad sentences in a fluorescent-lit library while the rain fell and the medication adjusted and no one in the world knew how close she came to closing the laptop and walking away.
 

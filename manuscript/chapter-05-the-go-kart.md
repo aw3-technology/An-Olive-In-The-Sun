@@ -99,4 +99,6 @@ The speakers crackle again, then hold.
 
 I think about the go-kart sometimes. The red plastic. The SPEED DEMON sticker. A grown man on a toy, hurtling down the highway toward something he couldn't name. It should be the funniest story I have. Most days, it is.
 
+Will passes behind me on his way to the garden, his hand finding the small of my back for a second, maybe two. He doesn't stop. His palm is warm through the fabric of my dress and his fingers press once, lightly, the way you touch something you are sure of. Then he is past me, already moving, and I do not turn to watch him go.
+
 I straighten a program on the table. It was already straight.

@@ -33,7 +33,7 @@ Sometimes an intrusive thought would break through the loop. A flash of somethin
 
 I did not know the word for any of this. I did not know that what I was doing had a clinical name, that other people did it too, that it was a disorder and not a moral failing. I thought I was broken in a way that was specifically mine: a defect in the machinery, a wire crossed somewhere deep in the architecture of who I was. I thought the counting and the checking and the catastrophizing were the price I paid for being alive, and I thought everyone else was paying a similar price and simply not talking about it, or I thought I was the only one, and either possibility was equally lonely.
 
-I thought about it the way I would later think about Hegel. A private system, hermetically sealed, that made perfect sense from the inside and looked like madness from the outside.
+A private system, hermetically sealed, that made perfect sense from the inside and looked like madness from the outside.
 
 All of it was the worst. That is the texture of OCD at fifteen: there is no relief, only the brief pause between one compulsion completing and the next one beginning, a rest that lasts exactly long enough to remind you of what rest used to feel like.
 
@@ -92,6 +92,8 @@ The parties taught me that connection was possible. They did not teach me that i
 ---
 
 The champagne is cool in my hand. Small bubbles breaking at the surface.
+
+Across the room, Will is laughing at something Rachel has said. Not his polite laugh, the measured one he uses at work events, but the real one, sudden and full, the one that sounds like it surprises even him. His head tilts back and his hand comes up to rub the back of his neck, and for a moment he is just a man laughing at a party, unguarded, and the sight of it catches somewhere beneath my ribs.
 
 I take a sip. It tastes like what it is: expensive, dry, celebratory. Not like warm Bud Light in a stranger's kitchen. Not like the red plastic cups of someone's backyard. The bubbles do not reach the place that the beer once reached. The alarm, these days, is managed by other means: medication, therapy, the daily practice of living inside a brain I have learned to negotiate with rather than silence.
 

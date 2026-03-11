@@ -101,7 +101,7 @@ I fold the vows one last time. The paper is warm from my hands and the sun. Thro
 
 The ceremony. The threshold. The door I am about to walk through.
 
-I catch the scent of lavender from somewhere, my mother's doing, and beneath it the faint mineral smell of the old stone building, and beneath that something green and dry from the hillside, carried in through a window someone left cracked. The smells layer the way the years layer. Nothing disappears entirely. It just gets covered by what comes next.
+I catch the scent of lavender from somewhere, my mother's doing, and beneath it the faint mineral smell of the old stone building, and beneath that something green and dry from the hillside, carried in through a window someone left cracked. The smells layer the way the years layer. Nothing disappears entirely.
 
 I look at my vows. They are short. Under a page. They do not contain the word forever.
 
@@ -129,17 +129,13 @@ My vows do not mention Hegel. They do not mention the dialectic. They do not con
 
 *I choose you. I will keep choosing.*
 
-The professor would have called it a synthesis. The emergence of something new from the collision of what I hoped and what I lost.
-
 I would just call it love. Imperfect, unguaranteed, built on the shaky foundation of two people who know exactly how badly things can go and are standing here anyway.
 
 I fold the paper. I slide it into the pocket of my dress, where it sits warm against my hip, a small weight that does not feel small.
 
 Through the window, the October light falls on the hillside beyond the venue, on the dry grass and the rows of gnarled trees, their branches twisted into shapes that look like they should not survive. But they do. They grow in poor soil, under relentless sun. They bear fruit anyway.
 
-I do not linger on the metaphor. There will be time for metaphors later.
-
-Right now there is a door to walk through.
+I turn from the window. There is a door to walk through.
 
 I check my reflection in the mirror. I press my thumbnail into my finger. Once. Twice. Three times. Four. The machinery runs. It always runs. The trick is not stopping it. The trick is walking through the door while it runs.
 

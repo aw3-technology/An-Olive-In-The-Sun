@@ -3,9 +3,9 @@
 
 My grandparents are sitting in the front row.
 
-They arrived early, the way they arrive everywhere, because punctuality is a form of belief and they have never stopped believing. My grandmother wears a navy dress with a pearl brooch at the collar, the same brooch she has worn to every occasion that required solemnity since before I was born. My grandfather sits beside her in a dark suit, his hands resting on his thighs, his posture the posture of a man who learned long ago that the body should not betray what it carries. They do not speak to each other. They do not need to. They have been married for fifty-three years and their silence has a grammar the rest of us will never learn.
+They arrived early, the way they arrive everywhere, because punctuality is a form of belief and they have never stopped believing. My grandmother wears a navy dress with a pearl brooch at the collar, the same brooch she has worn to every occasion that required solemnity since before I was born. My grandfather sits beside her in a dark suit, his hands resting on his thighs, his body held the way a man holds it when he learned long ago not to betray what he carries. They do not speak to each other. They do not need to. They have been married for fifty-three years and their silence has a grammar the rest of us will never learn.
 
-I count the chairs in the front row. Twelve. I count them again. Twelve. I knew that the first time. I count them anyway, my eyes moving left to right and back, the way my eyes have always moved across rows of things, across shelves and book spines and silverware drawers, looking for the error that is never there but might be. The ceremony is less than an hour away and my body hums with a low, persistent voltage. Not quite panic, but the room next door.
+I count the chairs in the front row. Twelve. I count them again. Twelve. The ceremony is less than an hour away and my body hums with a low, persistent voltage. Not quite panic, but the room next door.
 
 The coordinator catches my elbow as she passes. "We're running about fifteen behind," she says, her voice a careful calibration of apology and competence. "The officiant had a question about the ceremony order."
 
@@ -115,8 +115,6 @@ My grandparents' surface was order. And the order was real. I could feel it in t
 
 My grandmother never complained. This, which had seemed to me as a child to be a form of peace, began to look, through the lens of adolescence, like a form of erasure. She did not complain about anything. Not the limitations of her life, not the monotony, not the fact that my grandfather made every decision of consequence, from the car they drove to the church they attended to the order of the evening news. She moved through the house like a woman who had long ago agreed to occupy a particular shape and had stopped noticing the edges.
 
-Was that marriage? Was that what lasted?
-
 I did not know. I still do not. I know that fifty-three years is real. I know that showing up every morning for someone, decade after decade, without walking away, is not nothing. I know that the roast and the grace and the folded napkins were a language of care, even if the vocabulary was limited, even if there were entire shelves of human experience that language could not reach.
 
 And I know that their world had no room for certain questions. My questions about faith, about philosophy, about why suffering existed if God was good. My questions about identity, about desire. The particular question I could never ask, the one about who I loved and how, the one that sat in my chest through every Sunday dinner like a stone I had swallowed and could not cough up. They did not acknowledge that part of me. Not with hostility. With silence. The same silence they used for the divorce, for Mark, for everything that did not fit the frame. They simply did not see it, or chose not to, and the effect was the same: a room I could visit but could not live in.
@@ -145,7 +143,7 @@ Gratitude. That such a place existed. That somewhere in the world there was a ta
 
 And grief. Because I could not stay there. Because that house was not my house. Because the world I came from did not operate by those rules, and no amount of Sunday dinners could change the thing I went home to. Because the safety I felt at their table was real, but it was borrowed, and the borrowing made the returning worse.
 
-Their marriage was a house I could visit but never live in. Well-kept and warm and built for people who had never had to question whether the foundation was real.
+Their marriage was a house I could visit but never live in.
 
 ---
 

@@ -97,7 +97,7 @@ My therapist's office had a window that looked out onto a parking lot, which was
 
 "Is teaching healing you, or is it a way to keep reliving your trauma?"
 
-I wanted to say healing. I wanted the narrative to be that clean: broken girl becomes teacher, helps children, transforms pain into purpose, credits roll. I wanted teaching to be the synthesis. The Hegelian resolution of everything that had come before.
+I wanted to say healing. I wanted the narrative to be that clean: broken girl becomes teacher, helps children, transforms pain into purpose, credits roll. I wanted teaching to be the answer. The resolution of everything that had come before.
 
 "Probably both," she said, when I didn't answer. "And that's okay. As long as you stay aware of it."
 
@@ -124,10 +124,6 @@ Pride. Real, uncomplicated pride. The kind I had not felt in years, maybe ever. 
 And exhaustion. The bone-deep tiredness of a person who has been holding up a ceiling with her hands and has just been told she is doing an excellent job of it. The award was proof of something. But it was also proof of the cost, and the cost was this: I went home every evening carrying thirty lives in addition to my own, and my own was already more than I knew how to carry on most days.
 
 Purpose is not peace. I learned this in Room 143, under the fluorescent lights, in the second-floor bathroom with the lock that stuck. The classroom gave me meaning. It did not give me healing. The healing was a separate process, slower, less dramatic, conducted in a therapist's office with a window overlooking a parking lot. The healing was medication adjustments and breathing exercises and the tedious, unglamorous work of learning to feel things without intellectualizing them into submission. The meaning and the healing lived in different rooms, and I walked between them daily, and some days one room was locked and some days the other was, and the walking itself was the life.
-
-I became a teacher because no one had ever looked at me in a classroom and said, "I see you." I wanted to be the person who said it first.
-
-I became a teacher because the fluorescent lights in the hospital hummed at a frequency that meant illness, and I needed to find a room where they hummed at a frequency that meant something else.
 
 I became a teacher because it was the first place where my history was not a wound but an instrument. And instruments, played well, make a sound that can fill a room. And played too long, they wear out the hands.
 
