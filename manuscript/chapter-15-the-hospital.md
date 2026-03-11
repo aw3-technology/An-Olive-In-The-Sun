@@ -83,9 +83,9 @@ Bipolar II, she said. She explained the difference between I and II, and I heard
 
 Bipolar. The word was clinical and cold and precise, and it landed like a diagnosis and a verdict and a strange, exhausted relief all at the same time. A name. After twenty-three years of unnamed wrongness, of feeling like a radio tuned to a station no one else could hear, there was a name. It did not fix anything. A name never does. But it rearranged the furniture. It meant the thing inside me was not a character flaw. It was a condition. It had a shape, a literature, a treatment protocol. Other people had it. Other people had sat in offices like this and heard this word and walked out and continued to live.
 
-OCD, she said. That too. The counting, the checking, the intrusive thoughts, the loops. She gave it a name and the name was like turning on a light in a room I had been navigating in the dark for years, bumping into everything, bleeding from the collisions, blaming myself for the bruises.
+OCD, she said. That too. The counting, the checking, the intrusive thoughts, the loops. She gave it a name.
 
-I sat in the office and let the words settle. Bipolar II. Obsessive-compulsive disorder. Generalized anxiety. A trio of names for a trio of uninvited residents who had been living in my skull rent-free since before I had language for them. I wanted to feel something clean. Relief, maybe. Or grief. Instead I felt the dull, flat exhaustion of someone who has been running and finally stops and realizes the distance does not matter because the thing she was running from was inside her the whole time.
+I sat in the office and let the words settle. Bipolar II. Obsessive-compulsive disorder. Generalized anxiety. A trio of names for a trio of uninvited residents who had been living in my skull rent-free since before I had language for them. I wanted to feel something clean. Relief, maybe. Or grief. Instead I felt the dull, flat exhaustion of someone who has been running and finally stops.
 
 ---
 
@@ -145,7 +145,7 @@ We drove home in silence. The world outside the car window was obscenely normal.
 
 Recovery is not a story. It is a schedule.
 
-Monday: therapy, 10 a.m. Wednesday: psychiatrist, 2 p.m. Every morning: two pills, one white, one blue, swallowed with water, no exceptions. Every night: the same. The alarm on my phone set for 8 a.m. and 8 p.m. because the medication required consistency and my brain, left to its own devices, would convince me that I did not need it, that I was fine now, that the pills were a crutch and I was strong enough to walk without them. I was not. I took them anyway. That was the first lesson. Strength was not the absence of the crutch. It was the willingness to use it.
+Monday: therapy, 10 a.m. Wednesday: psychiatrist, 2 p.m. Every morning: two pills, one white, one blue, swallowed with water, no exceptions. Every night: the same. The alarm on my phone set for 8 a.m. and 8 p.m. because the medication required consistency and my brain, left to its own devices, would convince me that I did not need it, that I was fine now, that the pills were a crutch and I was strong enough to walk without them. I was not. I took them anyway.
 
 The first weeks were the hardest. Not because anything dramatic happened but because nothing did. I went to the grocery store and the fluorescent lights above the produce aisle buzzed at the same frequency as the lights in the ward, and I stood between the apples and the oranges and my hands shook and I could not move for thirty seconds. I went to the pharmacy and waited for my prescription and the woman behind the counter called my name and I flinched, because names called in clinical settings had meant something different eleven days ago. I drove home and sat in my car in the parking lot of my apartment building and breathed in counts of four, in for four, hold for four, out for four, the way Dr. Aronson had taught me, and I did this for ten minutes before I could walk inside.
 
@@ -192,5 +192,3 @@ The candle burned for two hours. I sat at the counter and drank tea and did not 
 The candle went out on its own. I did not relight it. I went to bed. I set my alarm for 8 a.m. I placed the two pills on the nightstand beside a glass of water, ready for morning.
 
 I would take them tomorrow. And the day after that. And the day after that.
-
-This was not a story of getting better. This was the first day of learning to stay.

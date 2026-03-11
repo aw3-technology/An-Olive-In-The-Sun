@@ -13,8 +13,6 @@ Fifteen minutes. I feel it in my jaw first, the tightening, the clench. Fifteen 
 
 I look at my grandparents again. They sit the way they have always sat. Close enough to touch. Not touching.
 
-I look at my grandparents again. They sit the way they have always sat. Close enough to touch. Not touching.
-
 ---
 
 Their house smelled like pot roast and Pine-Sol and the faint, papery sweetness of old hymnals left open on a side table. I knew the smell before I knew the word for it. Before I understood that some houses have a scent the way some people have a voice, singular and unchanging, a thing you could recognize in the dark.
@@ -145,9 +143,7 @@ My sister usually fell asleep in the car. She had that gift, the ability to clos
 
 Gratitude. That such a place existed. That somewhere in the world there was a table set for six and a clock that kept its word and a woman who put her hand on your shoulder without being asked.
 
-And grief. Because I could not stay there. Because that house was not my house. Because the world I came from did not operate by those rules, and no amount of Sunday dinners could change the thing I went home to. Because the safety I felt at their table was real, but it was borrowed, and the borrowing made the returning worse.
-
-The headlights cut through the Marin County fog.
+And grief. Because I could not stay there. Because that house was not my house. Because the world I came from did not operate by those rules, and no amount of Sunday dinners could change the thing I went home to. Because the safety I felt at their table was real, but it was borrowed.
 
 ---
 
