@@ -59,7 +59,7 @@ My mother at the water's edge. Mark sitting in the shallows, cradling his hand a
 
 Towels. My mother wrapping his hand in a beach towel, the terrycloth going red immediately, the way a napkin absorbs a spill, quick and total. Mark not crying, not screaming, just breathing hard through his nose and saying "It's fine, it's fine, it's fine," which it was not.
 
-The walk to the truck. Mark leaning on my mother. His weight against her. She was not a large woman. Five foot four, a hundred and twenty pounds. She held him up. Of course she did. She had been holding things up her entire life.
+The walk to the truck. Mark leaning on my mother. His weight against her. She was not a large woman. Five foot four, a hundred and twenty pounds. She held him up. She had been holding things up her entire life.
 
 Then the question.
 

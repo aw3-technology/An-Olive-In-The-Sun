@@ -79,7 +79,7 @@ The philosophy did what the theology could not. It did not ask me to trust a pla
 
 ---
 
-Of course it was also a defense mechanism. I can see that now. I could almost see it then.
+It was also a defense mechanism. I can see that now. I could almost see it then.
 
 Because the thing about intellectualizing your pain is that it works the same way the first drink worked at fifteen: it creates distance. It takes the raw, stupid, animal grief of being a person whose stepfather killed himself, whose mother couldn't stop drinking, whose family collapsed and reformed and collapsed again, and it gives you a frame to hang it in. And the frame is beautiful, and the frame is useful, and the frame lets you stand in a gallery looking at your own suffering instead of standing inside it.
 

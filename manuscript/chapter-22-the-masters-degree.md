@@ -101,7 +101,7 @@ He leaned back in his chair and looked at me over his glasses, and I could see h
 
 I waited for the rest. The advice. The concern. The suggestion that I take a lighter course load, or see a counselor, or reconsider my timeline. The institutional response to a struggling student.
 
-But the rest didn't come. He just looked at me with something that was not pity and not concern and not even kindness, exactly, but recognition. The look of a man who had seen enough graduate students to know what struggling looked like, and who had the wisdom or the restraint not to turn that recognition into a project.
+But the rest didn't come. He just looked at me with something closer to recognition than kindness. The look of a man who had seen enough graduate students to know what struggling looked like, and who had the wisdom or the restraint not to turn that recognition into a project.
 
 "The writing is good," he said. "Keep going."
 

@@ -7,7 +7,7 @@ I am standing near the bar with a glass of wine I have barely touched, watching 
 
 Everyone is here. And the weight of that sentence is not small.
 
-I feel the dress. I have been feeling it all day, the particular heaviness of it, the lace sleeves against my arms, the way the fabric holds my ribs. It is not uncomfortable, exactly. It is present. The way a hand on your shoulder is present, reminding you that someone is there, that you are here, that the body you are wearing is the one you showed up in. I smooth the front of it. I smooth it again. The gesture is becoming a tic, my hands returning to the same seam the way my eyes return to the same numbers, the same locks, the same rows of things that need to be right before I can leave.
+I feel the dress. I have been feeling it all day, the particular heaviness of it, the lace sleeves against my arms, the way the fabric holds my ribs. It is not uncomfortable. It is present. The way a hand on your shoulder is present, reminding you that someone is there, that you are here, that the body you are wearing is the one you showed up in. I smooth the front of it. I smooth it again. The gesture is becoming a tic, my hands returning to the same seam the way my eyes return to the same numbers, the same locks, the same rows of things that need to be right before I can leave.
 
 The empty chair is visible from where I stand.
 
@@ -53,7 +53,7 @@ They did not show me how to question. Their house had no room for questions. Not
 
 Their marriage was real. I believe that. It was also a room with the windows shut.
 
-My grandfather, the other one, is at the bar. Of course he is at the bar. He stands there in a suit that cost more than my first month's rent, his silver hair swept back, a rocks glass in his hand, telling a story to two groomsmen who are laughing too hard. He has this gravity, this pull. People orbit him. They always have. I orbited him as a child, sitting in the leather booths at Mr. Burlingame, watching the martini olives float in their glasses like small green planets suspended in a transparent sky.
+My grandfather, the other one, is at the bar. He stands there in a suit that cost more than my first month's rent, his silver hair swept back, a rocks glass in his hand, telling a story to two groomsmen who are laughing too hard. He has this gravity, this pull. People orbit him. They always have. I orbited him as a child, sitting in the leather booths at Mr. Burlingame, watching the martini olives float in their glasses like small green planets suspended in a transparent sky.
 
 He showed me charisma. He showed me how to fill a room, how to command attention, how to make people feel that being near you was a kind of privilege. He showed me the seduction of surfaces, the way a well-cut suit and a confident voice could make a life look like something worth envying.
 
@@ -75,7 +75,7 @@ She showed me freedom. She showed me that a woman could live without the script,
 
 She did not show me how to stay when it got hard. She could not. When I was sick in that hotel room in Barcelona, feverish, unable to leave the bed, she experienced my need as a cage. She brought water and sat with me and tried, I believe she really tried, and then she left for Lisbon and did not come back. Two lines of text, a week later. The end of something that had been, for a brief season, the most liberating thing I had ever known.
 
-Freedom without vulnerability is its own kind of enclosure. Nadia built a beautiful life inside it. I could not live there. Not because I was braver but because I was needier, and the neediness, which I spent years being ashamed of, turned out to be the thing that kept me reaching for people instead of running from them.
+She built a beautiful life that way. I watched her do it and I wanted to want it. But every time I tried to hold the world at that distance, my hands shook. I could not live without being needed. Not because I was braver but because I was needier, and the neediness, which I spent years being ashamed of, turned out to be the thing that kept me reaching for people instead of running from them.
 
 I think about the philosophy. Not any specific text, not the dialectic, not the professor with his chalk and his Tuesday afternoon lectures. Just the act of thinking itself. The years I spent learning to take the formless weight of what I felt and give it structure. The frameworks and the terminology and the careful, rigorous habit of asking why. Why did the marriage fail. Why did the drinking start. Why did the hand go into the propeller. Why did the silence follow the death the way weather follows the season, inevitably, without malice.
 

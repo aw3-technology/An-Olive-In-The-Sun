@@ -21,7 +21,7 @@ The uniform was a plaid skirt in green and navy, hemmed exactly to the knee. Whi
 
 I wore the crucifix.
 
-Not because I believed, exactly. Because the girls who didn't wear it were making a statement, and I was not yet ready to make statements. I was thirteen and recently deposited into an all-girls Catholic school by a mother who believed structure might do for me what she could not. Which was hold me in place.
+Not because I believed. Because the girls who didn't wear it were making a statement, and I was not yet ready to make statements. I was thirteen and recently deposited into an all-girls Catholic school by a mother who believed structure might do for me what she could not. Which was hold me in place.
 
 She was not wrong.
 
@@ -39,7 +39,7 @@ I turned around and Megan was already grinning, and I knew. The way you know at 
 
 Caroline came next, pulled into our orbit by proximity and a shared lunch period. She was quieter than Megan, more watchful. She carried a worn copy of *The Perks of Being a Wallflower* in her backpack for the entire first semester, its spine so cracked the pages were starting to separate. She read it the way other girls read Scripture. I understood that impulse. Some books are not books. They are mirrors shaped like paper.
 
-By October the three of us were inseparable in the way that only teenage girls can be inseparable, as if the friendship itself were a country we had founded and would defend with our lives. We ate lunch together on the bench near the chapel garden, trading halves of sandwiches and complaining about the same teachers with the reverence of soldiers cursing their commanding officers. We passed notes folded into elaborate origami shapes, triangles and stars and once a tiny paper crane that Megan made during a study hall on the Eucharist. We had a language. Not a code, exactly. A frequency. Inside jokes that had compressed over so many repetitions they were now single words, sounds, a raised eyebrow that could contain an entire conversation.
+By October the three of us were inseparable in the way that only teenage girls can be inseparable, as if the friendship itself were a country we had founded and would defend with our lives. We ate lunch together on the bench near the chapel garden, trading halves of sandwiches and complaining about the same teachers with the reverence of soldiers cursing their commanding officers. We passed notes folded into elaborate origami shapes, triangles and stars and once a tiny paper crane that Megan made during a study hall on the Eucharist. We had a language. A frequency more than a code. Inside jokes that had compressed over so many repetitions they were now single words, sounds, a raised eyebrow that could contain an entire conversation.
 
 "Parrot" meant Sister Mary Catherine was watching.
 

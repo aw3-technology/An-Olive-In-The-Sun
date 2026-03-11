@@ -151,7 +151,7 @@ My grandmother looks at me.
 
 Across the rows of chairs, across the white runner not yet unrolled and the programs stacked and the flowers, wrong and right, breathing in the October air, she looks at me and I look at her and something passes between us that is not a word and not a wave and not a smile but something older than all of those. A recognition. She sees me standing here in a white dress about to do the thing she did fifty-three years ago, the thing her daughter could not sustain, the thing I have spent my entire life being afraid of. She sees me, and her face does not change, but her eyes hold for a moment longer than they need to, and in that extra moment there is something I have been looking for in that house since I was seven years old.
 
-Not approval, exactly. Not understanding. She will never understand the life I have lived. She will never ask about the parts of me that do not fit her frame.
+Something short of approval. Something that will never become understanding. She will never ask about the parts of me that do not fit her frame.
 
 But she is here. Sitting in the front row with her purse on her lap and her pearl brooch and her husband of fifty-three years beside her, and she is looking at me the way she looked at me that evening in the kitchen, with her hand on my shoulder and the yellow light pooling around us.
 

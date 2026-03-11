@@ -57,11 +57,11 @@ I locked the door when I got home. I checked it. I checked it again.
 
 ---
 
-There is a second consciousness that women develop. I don't know what else to call it. A program running in the background, always, beneath whatever you are actually doing: tracking exits, monitoring drinks, reading the room for threat. Counting the number of men between you and the door. Noting which one is watching you. Cataloguing the route to the bathroom, the parking lot, the street. Measuring the distance between his body and yours and adjusting, always adjusting, to keep the distance large enough to be safe and small enough to avoid the accusation that you are being cold, rude, uptight, crazy.
+I did not have a name for what my body learned to do. The scanning, the measuring, the constant arithmetic of distance and exit. In a crowded room I could locate every door within seconds. I knew which men were watching before I knew their names. I registered the weight of a hand before the hand arrived.
 
-The program booted up when I was fourteen and it has never shut down.
+It started at fourteen and it never stopped.
 
-I was already wired for it. The anxiety, the OCD, the compulsive scanning of every room for what could go wrong. Before any man ever looked at me, I was already taking inventory: who is here, what might happen, where is the nearest way out. My brain arrived in the world primed for surveillance. And then the world looked at me and said: good, you'll need that. And it gave me reason after reason after reason, until I could no longer tell the difference between the anxiety I was born with and the vigilance I was taught.
+The strange thing was how easily it merged with what was already there. The anxiety, the OCD, the compulsive scanning for what could go wrong. Before any man on the street ever said a word to me, I was already cataloguing threats. My brain arrived primed for vigilance. The world just gave it new material.
 
 There is a broader pattern, and it moves like a tide. At nine, I was looked at. Boys on the playground who said things I did not yet understand, comments about my body that I absorbed without context, the way children absorb everything, silently, recording. At fourteen, I was appraised. The truck. The catcalls. The slow education in what it meant to have a body that other people felt entitled to narrate. At twenty-one, I was cornered. The photographer. The producer. The man at the party. The progression from being seen to being assessed to being trapped, each stage feeling inevitable, each one building on the last like floors of a building I never agreed to enter.
 

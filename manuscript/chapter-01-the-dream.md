@@ -29,7 +29,7 @@ No dark suit, no nervous hands running through his hair the way he always did be
 
 Of course it would end this way.
 
-Of course it would fall apart.
+It would fall apart.
 
 ---
 
@@ -107,7 +107,9 @@ The theory was elegant. The reality was a kitchen table and a five-year-old tryi
 
 The sun has risen now, turning the thin hotel curtains a pale, glowing yellow. I walk to the window and crack it open. Cool air spills in. The smell of earth and dried leaves. Northern California mornings have this strange softness to them, the light diffused, almost forgiving. It reminds me of childhood mornings before school, when the world briefly felt calm before the day began rearranging itself into something more complicated.
 
-Below, the vineyard stretches out across the hillside, rows of vines lined in careful geometry, still heavy with dew. A few workers drift between the rows in small electric carts, their shapes moving slowly through the low fog like figures in a painting someone has not quite finished.
+Below, the vineyard stretches out across the hillside, rows of vines lined in careful geometry, still heavy with dew. A few workers drift between the rows in small electric carts, their shapes moving slowly through the low fog like figures in a painting someone has not quite finished. At the far edge of the property, a stone barn with a collapsed cupola leans slightly to the east, its roof patched with corrugated tin that has oxidized to a pale green. A weathervane in the shape of a rooster sits at an angle on the surviving ridge beam, pointing permanently southwest, frozen in a direction no wind chose.
+
+A red-tailed hawk circles above the vineyard in slow, patient arcs, riding thermals that rise off the hillside as the morning warms. It makes no sound. Just the wide, deliberate turning.
 
 Somewhere below, someone is testing speakers at the venue. A short burst of music, then silence again.
 
@@ -123,7 +125,7 @@ I read it twice. Three times.
 
 In my family, marriage has always functioned less as a destination and more as a temporary arrangement. My grandparents on my father's side divorced after forty years, proof that longevity guarantees nothing. My parents lasted five. A stepfather arrived later. For most of my life, love and impermanence have felt like the same thing.
 
-Which is why the dream did not feel strange. It felt logical. Of course he would not show up. Of course the story would end the same way all the others had.
+Which is why the dream did not feel strange. It felt logical. He would not show up. The story would end the same way all the others had.
 
 But he texted at 6:14 in the morning. Before the sun was fully up. *Still here.*
 

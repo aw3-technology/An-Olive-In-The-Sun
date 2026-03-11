@@ -11,7 +11,7 @@ She opens her mouth.
 
 Nothing comes out.
 
-A beat. Two beats. Someone at the far table coughs. The string lights above us sway in the vineyard breeze, casting slow, pendular shadows across the white tablecloths, and for a moment I think she will sit back down. I think she will set the glass on the table and fold her hands in her lap and let the silence say whatever she cannot, the way she has let silence speak for her my entire life. The way silence has been the primary language of our family, more fluent than any of us in the things that actually matter.
+A beat. Two beats. Someone at the far table coughs. The string lights above us sway in the vineyard breeze, a dry October wind that smells like dust and sage and carries the faint sweetness of grapes left too long on the vine. The canvas walls of the tent ripple and go taut, ripple and go taut. And for a moment I think she will sit back down. I think she will set the glass on the table and fold her hands in her lap and let the silence say whatever she cannot, the way she has let silence speak for her my entire life. The way silence has been the primary language of our family, more fluent than any of us in the things that actually matter.
 
 Then she clears her throat.
 
