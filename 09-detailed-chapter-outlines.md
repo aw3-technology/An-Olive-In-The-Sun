@@ -566,7 +566,7 @@ These are the oxygen that makes the darkness survivable for the reader.
 **TRIGGER:** His name spoken aloud. The way the dead return through other people's mouths.
 
 **FLASHBACK (Past --- bulk of chapter)**
-- The full revelation of Mark's suicide.
+- The full revelation of Mark's suicide (he hanged himself in the garage).
 - The build-up the reader has been waiting for since Chapter 4. Every reference to Mark's descent, every foreshadowed darkness, arrives here.
 - The day it happened (or the day Olivia learned). Where she was. Who told her. The exact moment the world reorganized itself around this new, permanent fact.
 - The aftermath: the family in shock. Her mother's grief---visible for the first time. The woman who had held everything together by willpower coming undone.

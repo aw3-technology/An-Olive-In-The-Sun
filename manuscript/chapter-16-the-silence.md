@@ -63,7 +63,7 @@ She looked up when I walked in. Her eyes were red but she was not crying. She ha
 
 I sat.
 
-She told me. The words came out plain and flat, stripped of every unnecessary thing. He had been alone in the house. He had been drinking. He had done it in the garage. She said these things the way you read a list, the way you describe the contents of a room to someone on the phone. Item by item. No adjectives. No interpretation. Just the facts of what had happened, laid out on the table between us the way my parents had once laid out the fact of their divorce, in a kitchen, in the afternoon, in language too simple for something so large.
+She told me. The words came out plain and flat, stripped of every unnecessary thing. He had been alone in the house. He had been drinking. He had hanged himself in the garage. She said these things the way you read a list, the way you describe the contents of a room to someone on the phone. Item by item. No adjectives. No interpretation. Just the facts of what had happened, laid out on the table between us the way my parents had once laid out the fact of their divorce, in a kitchen, in the afternoon, in language too simple for something so large.
 
 I did not cry.
 

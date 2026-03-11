@@ -145,7 +145,7 @@
 - Chaotic energy---sometimes funny, often dangerous
 - Capable of wild, absurd behavior
 
-**Fate:** Dies by suicide
+**Fate:** Dies by suicide (hanging)
 
 **What he represents:** Chaos and addiction. The unpredictability of adult life. A cautionary figure---but also a human being who was suffering.
 
