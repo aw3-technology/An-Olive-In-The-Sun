@@ -75,7 +75,7 @@ In that room, every night, my sister fell asleep first. I could hear her breathi
 
 She slept. I counted.
 
-Two daughters of the same collapse choosing different languages for the same wound. She turned outward, toward the physical, the tangible, the fixable. I turned inward, toward ideas and questions and the kind of thinking that never resolves. She learned to take care of surfaces. I learned to take them apart.
+Two daughters of the same collapse choosing different languages for the same wound.
 
 By middle school the gap between us felt permanent. She watched reality television on the living room couch while I sat on my bed reading Sylvia Plath, convinced that someone who had been dead for forty years understood me better than anyone alive. She painted her nails in careful, even strokes. I wrote in journals I hid under the mattress. She could walk into a room and read every person in it within seconds, filing the information away behind a neutral expression. I could walk into a room and immediately begin constructing a theory about why everyone in it was secretly suffering.
 
@@ -93,19 +93,11 @@ Years later I would learn the word for what she carried. It was not a diagnosis,
 
 ---
 
-She maintained contact with our father. This is the thing I still cannot fully understand.
-
-Every other Sunday she called him. Not because the conversations were good. They followed the same arc each time: ten minutes of surface talk, his attention drifting, the faint sound of guitar strings being plucked on the other end of the line, then a silence neither of them knew how to fill, and finally her quiet "Well, okay then" before hanging up.
-
-She sent birthday cards. She remembered his new girlfriend's name. She drove to his apartment on holidays and sat on the futon in the room that was supposed to be hers but was clearly his office, and she ate takeout with him and watched whatever he wanted to watch and never complained.
-
-I stopped calling him when I was fifteen. I could not articulate why at the time, but the reason was simple: the distance between what I wanted from him and what he could give me had become a canyon I was tired of shouting across. My sister kept walking to the edge and looking down. She kept going back. Out of duty, maybe. Or love. Or the inability to stop trying, which might be the same thing. She never explained it, and I never asked, because asking would have meant admitting that her way of surviving our father might have been braver than mine.
-
-She carried other things I only noticed later. Bitten nails beneath her careful manicures, the edges ragged, the cuticles red. Dark circles so consistent they had become part of her face, covered every morning with the same concealer she used on clients. A glass of wine every night that became two, quiet and methodical, the same way our mother drank: not enough to be alarming, just enough to take the edge off something she never named.
+She carried things I only noticed later. Bitten nails beneath her careful manicures, the edges ragged, the cuticles red. Dark circles so consistent they had become part of her face, covered every morning with the same concealer she used on clients. A glass of wine every night that became two, quiet and methodical, the same way our mother drank: not enough to be alarming, just enough to take the edge off something she never named.
 
 She read poetry in the bathtub. I did not know this until I visited her apartment in my twenties and found a waterlogged copy of Mary Oliver wedged between the shampoo bottles. She saw me notice it and said nothing. I said nothing. There are certain revelations between sisters that survive only if no one speaks them aloud.
 
-She was not soft. People assumed she was because she worked with beauty, because her voice was calm, because she showed up and did what needed doing without theatrics. But steadiness is not softness. Steadiness is a wall, and behind it anything could be happening. A person who never falls apart is not a person who has nothing to fall apart about. She is just a person who has decided, consciously or not, that falling apart is a luxury she cannot afford.
+She was not soft. People assumed she was because she worked with beauty, because her voice was calm, because she showed up and did what needed doing without theatrics. But a person who never falls apart is not a person who has nothing to fall apart about. She is a person who has decided that falling apart is a luxury she cannot afford.
 
 ---
 

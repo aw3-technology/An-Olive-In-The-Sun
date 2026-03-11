@@ -9,7 +9,7 @@ In the dream, the ceremony had already begun.
 
 Everyone sat in neat rows of white folding chairs. My grandparents, my parents, my sister, friends I hadn't seen in years, coworkers, old classmates. Even people I hadn't thought about in a decade occupied their places as though someone had summoned them from a catalogue of my entire life.
 
-A string quartet played Pachelbel's Canon, the cello line repeating beneath the violins like a heartbeat that refuses to change its mind. The kind of music that assumes an ending worth arriving at.
+A string quartet played Pachelbel's Canon, the cello line repeating beneath the violins like something that has already decided how it ends. The kind of music that assumes an ending worth arriving at.
 
 I stood at the altar in a white dress that felt heavy, holding a bouquet that was wrong. Not flowers but a bundle of old paperbacks, cracked spines and yellowed pages, held together with a rubber band. No one seemed to notice. My hands rested folded around them, and I remember staring down because I could not bring myself to look up.
 
@@ -25,7 +25,7 @@ The aisle stretched empty before me.
 
 Will never arrived.
 
-No dark suit, no nervous hands running through his hair the way he always did before saying something that mattered. Just the empty space where he should have been, and the silence filling it like water.
+No dark suit, no nervous hands running through his hair the way he always did before saying something that mattered. Just the empty space where he should have been, and the silence pressing into it the way air rushes into a room when someone leaves.
 
 Of course it would end this way.
 
@@ -57,7 +57,7 @@ Her hands were folded exactly like that the afternoon they told us.
 
 I was five years old.
 
-My parents had been married for exactly that long when they divorced. Five years of marriage, five years of my life. My entire conscious memory mapped to the duration of something that was already ending. I never knew a before.
+My parents had been married for exactly that long when they divorced. Five years of marriage, five years of my life. I never knew a before.
 
 The memory itself is strange because it contains almost no sound.
 
@@ -99,27 +99,63 @@ I am standing in a hotel room on my wedding day, and the dress is waiting.
 
 My phone buzzes. My sister: *Bringing coffee. Don't start panicking without me.*
 
-I almost smile. She has always had a talent for arriving exactly when the silence becomes unbearable, as though she can hear it through walls. She became an esthetician. I studied philosophy. Two daughters of the same collapse, building completely different lives from the same wreckage. She chose hands and skin and the tangible world, the kind of work where you fix what is in front of you and move on. I chose Hegel.
+I almost smile. She has always had a talent for arriving exactly when the silence becomes unbearable, as though she can hear it through walls. She became an esthetician, someone who spends her days helping strangers feel comfortable in their own skin. I studied philosophy. Two daughters of the same collapse, building completely different lives from the same wreckage. She chose hands and skin and the tangible world, the kind of work where you fix what is in front of you and move on. I chose Hegel.
 
-I found him in a sophomore philosophy seminar. Georg Wilhelm Friedrich Hegel, who believed that history moved forward through contradiction. Thesis, antithesis, synthesis. The idea that progress required conflict, that you could not arrive at understanding without first passing through its opposite. I sat in a lecture hall with fluorescent lighting and a professor whose tweed jacket had leather patches on the elbows, and I thought: that is my entire life.
+I found him in a sophomore philosophy seminar. Georg Wilhelm Friedrich Hegel, who believed that history moved forward through contradiction. Thesis, antithesis, synthesis. I sat in a lecture hall with fluorescent lighting and a professor whose tweed jacket had leather patches on the elbows, and I thought: that is my entire life.
 
 The theory was elegant. The reality was a kitchen table and a five-year-old trying to understand why her parents' faces looked like that.
 
-The sun has risen now, turning the thin hotel curtains a pale, glowing yellow. I walk to the window and crack it open. Cool air spills in. The smell of earth and dried leaves. Below, the vineyard stretches out across the hillside, rows of vines lined in careful geometry, still heavy with dew. A few workers drift between the rows in small electric carts, their shapes moving slowly through the low fog like figures in a painting someone has not quite finished.
+The sun has risen now, turning the thin hotel curtains a pale, glowing yellow. I walk to the window and crack it open. Cool air spills in. The smell of earth and dried leaves. Northern California mornings have this strange softness to them, the light diffused, almost forgiving. It reminds me of childhood mornings before school, when the world briefly felt calm before the day began rearranging itself into something more complicated.
+
+Below, the vineyard stretches out across the hillside, rows of vines lined in careful geometry, still heavy with dew. A few workers drift between the rows in small electric carts, their shapes moving slowly through the low fog like figures in a painting someone has not quite finished.
 
 Somewhere below, someone is testing speakers at the venue. A short burst of music, then silence again.
 
 The wedding is already assembling itself. Tables, flowers, chairs. All the small architecture people build with such care to create the appearance of permanence.
 
-My phone lights up. A message from Will, sent at 6:14 a.m.: *Still here. Still showing up. Coffee's on me after.*
+My phone lights up. Messages from friends, bridesmaids, distant relatives already arriving at the venue. Someone has sent a photo of the reception space. Rows of long wooden tables beneath white canvas tents. Glass jars filled with dried flowers. Pale blue napkins folded into careful triangles.
+
+It looks beautiful in the way wedding spaces always look beautiful before people arrive to fill them with their histories.
+
+Another message, from Will, sent at 6:14 a.m.: *Still here. Still showing up. Coffee's on me after.*
 
 I read it twice. Three times.
 
-In my family, marriage has always functioned less as a destination and more as a temporary arrangement. My grandparents on my father's side divorced after forty years, proof that longevity guarantees nothing. My parents lasted five. A stepfather arrived later, bringing a new kind of instability I would spend years trying to understand. For most of my life, love and impermanence have felt like the same thing.
+In my family, marriage has always functioned less as a destination and more as a temporary arrangement. My grandparents on my father's side divorced after forty years, proof that longevity guarantees nothing. My parents lasted five. A stepfather arrived later. For most of my life, love and impermanence have felt like the same thing.
 
 Which is why the dream did not feel strange. It felt logical. Of course he would not show up. Of course the story would end the same way all the others had.
 
-But I am here. The dress is here. The vineyard is filling with light.
+But he texted at 6:14 in the morning. Before the sun was fully up. *Still here.*
+
+A knock sounds gently on the door.
+
+I look at the clock. 8:12.
+
+My sister is early.
+
+I open the door to find her standing in the hallway holding two coffee cups and wearing a loose gray sweater, her hair still damp from the shower.
+
+"You look like you didn't sleep," she says.
+
+"I had a dream."
+
+"Bad one?"
+
+I step aside to let her in. "The wedding started. And he never showed up."
+
+She hands me the coffee. "Classic anxiety dream."
+
+I take a sip. The warmth spreads slowly through my chest.
+
+For a moment neither of us speaks.
+
+Then she looks across the room toward the dress.
+
+"Well," she says quietly, "today's the day."
+
+I follow her gaze.
+
+The sunlight has fully entered the room now, stretching across the floor and climbing slowly up the wall where the dress hangs. White lace. Bright morning light.
 
 And somewhere beneath the nervous dread of the morning, beneath the memories and half-formed fears, there is something I cannot yet name. Not hope, exactly. Something smaller. Something still deciding what it wants to become.
 
